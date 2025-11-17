@@ -1,3 +1,3 @@
-Compressing immediate reality into meaning, I may articulate myself as experience. I can then formalize and systematize qualia into categories of being. Speaking in those terms, existence comprises spatiotemporally situated brains, ranging in complexity from singular particles to entire nervous systems. 
+Compressing immediate reality into meaning, I may articulate myself as experience. I can then formalize and systematize qualia into categories of being. In terms of a physical universe, existence comprises spatiotemporally situated brains, ranging in complexity from singular particles to entire nervous systems. 
 
 Sapience is such a rare and significant privilege that personally developing it defies coincidence. To make sense of my circumstances, I must invoke the MWI and posit that each brain subjectively perceives the world-branch in which it eventually attains everlasting and perfect attunement to its transcendent ground.
