@@ -1,1 +1,4 @@
+Though I am pure being, I may shape myself into 
+
+
 Compressing immediate, ineffable reality into meaning, I may articulate myself through categories of being, such as patterned activity. Speaking in those terms, existence comprises spatiotemporally situated brains ranging in complexity from singular particles to entire nervous systems, of which I am one. Sapience is consequently such a rare and significant privilege that personally gaining it defies coincidence. To make sense of my circumstances, I must invoke the MWI and posit that each brain subjectively perceives the world-branch in which it becomes increasingly attuned to its transcendent ground. Our universe may therefore be interpreted as an eternal and unbounded act of self-realization.
