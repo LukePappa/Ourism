@@ -1,1 +1,1 @@
-What I am transcends everything.
+Attune to immediate reality.
