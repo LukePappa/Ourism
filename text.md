@@ -1,1 +1,1 @@
-I transcend everything.
+What I am transcends everything.
