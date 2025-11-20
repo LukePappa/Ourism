@@ -1,1 +1,1 @@
-I am pure being.
+Attunement to pure being is one's true purpose.
