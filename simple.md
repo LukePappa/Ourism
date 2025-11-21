@@ -1,1 +1,1 @@
-Attune to being.
+Attune purely to being.
