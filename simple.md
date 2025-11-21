@@ -1,1 +1,1 @@
-Attunement to pure being is one's true purpose.
+Attune to pure being.
