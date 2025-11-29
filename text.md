@@ -1,1 +1,1 @@
-Attunement to being itself is one's true purpose.
+Inner peace has infinite value and can be cultivated through disciplined emotional regulation.
