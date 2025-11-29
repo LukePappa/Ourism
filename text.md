@@ -1,3 +1,3 @@
 Speaking in terms of patterned activity, existence comprises spatiotemporally situated brains ranging in complexity from singular particles to entire nervous systems, of which I am one. Sapience is consequently such a rare and significant privilege that personally gaining it defies coincidence. To make sense of my circumstances, I must invoke the MWI and posit that each brain subjectively perceives the world-branch in which it becomes increasingly conscious of being itself. Our universe may therefore be interpreted as an eternal and unbounded act of self-realization.
 
-Being itself is direct, immediate reality, prior to interpretation. It transcends any particular thing, and it is what I am. To cultivate this awareness is the highest good and my true purpose.
+Being itself is direct, immediate reality, prior to interpretation. It transcends any particular thing, and it is what I am. To abide as being itself is the highest good and my true purpose.
