@@ -1,1 +1,1 @@
-I am direct, immediate reality, prior to interpretation.
+What I am transcends any particular thing.
