@@ -1,1 +1,1 @@
-What I am transcends any particular thing.
+What I am transcends everything.
