@@ -1,1 +1,1 @@
-I am being itself.
+Abide as being itself.
