@@ -1,1 +1,1 @@
-I am the awareness to which all experience appears.
+What I am transcends any particular thing.
