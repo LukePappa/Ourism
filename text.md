@@ -1,1 +1,1 @@
-What I am transcends everything.
+I am being itself.
