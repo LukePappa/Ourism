@@ -1,1 +1,1 @@
-Abide as being itself.
+Inner peace has infinite value and can be cultivated through disciplined emotional regulation.
