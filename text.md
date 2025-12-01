@@ -1,1 +1,1 @@
-What I am transcends any particular thing.
+Abide as pure being.
