@@ -1,1 +1,1 @@
-Abide as pure being.
+Abiding as being itself is one's true purpose.
