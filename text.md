@@ -1,1 +1,1 @@
-I am awareness, which transcends any particular thing.
+I am pure awareness, the ground of being.
