@@ -1,1 +1,1 @@
-What I am is being, which transcends any particular thing.
+I am awareness, which transcends any particular thing.
