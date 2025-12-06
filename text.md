@@ -1,1 +1,1 @@
-I am pure awareness, the ground of being.
+Attunement to being itself is one's true purpose.
