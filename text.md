@@ -2,4 +2,4 @@ Any naturalistic justification for existence must presuppose some element of wha
 
 Existence itself comprises temporo-spatially situated brains ranging in complexity from individual particles to entire nervous systems. Sapience is consequently such a rare and significant privilege that personally gaining it defies coincidence. To make sense of one's circumstances, one must invoke the MWI and posit that each brain subjectively perceives the world-branch in which it experiences ever-deepening union with God.
 
-Much as the intellect sees truth, the heart encounters God. Saturated in His love, it may be purified further.
+Much as the intellect sees truth, the heart encounters God. Saturated with His love, it may be purified further.
