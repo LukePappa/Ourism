@@ -1,7 +1,3 @@
-Any naturalistic justification for our universe must presuppose some element of what it seeks to explain. To avoid this circularity, it is necessary to posit a transcendent source of existence: God.
+Any naturalistic justification for our universe must presuppose some element of what it seeks to explain. To avoid this circularity, it is necessary to posit a transcendent source of existence: God. Much as truth is seen by the intellect, God is apprehended by the heart. Moreover, He purifies the faculty, bringing one closer to Him.
 
 Existence itself comprises temporo-spatially situated brains ranging in complexity from individual particles to entire nervous systems. Sapience is consequently such a rare and significant privilege that personally gaining it defies coincidence. To make sense of one's circumstances, one must invoke the MWI and posit that each brain subjectively perceives the world-branch in which it grows indefinitely in communion with God.
-
-Much as truth is seen by the intellect, God is apprehended by the heart. Moreover, it purifies the faculty, bringing one closer to Him.
-
-
