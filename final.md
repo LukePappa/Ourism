@@ -1,1 +1,1 @@
-I am being itself.
+Abiding as being itself is one's true purpose.
