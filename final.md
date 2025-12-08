@@ -1,1 +1,1 @@
-Abiding as being itself is one's true purpose.
+Cultivating inner peace through disciplined emotional regulation is one's true purpose.
