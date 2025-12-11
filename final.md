@@ -1,1 +1,1 @@
-Direct, immediate reality can be reinterpreted as patterned activity. Speaking in those terms, our universe comprises spatiotemporally situated brains ranging in complexity from individual particles to entire nervous systems. Sapience is consequently such a rare and significant privilege that personally gaining it defies coincidence. To make sense of one's circumstances, one must invoke the MWI and posit that each brain subjectively perceives the world-branch in which it increasingly attunes to being itself.
+To recognize oneself as pure being is one's true purpose.
