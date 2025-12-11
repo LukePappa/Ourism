@@ -1,1 +1,1 @@
-Inner peace has infinite value and can be cultivated through disciplined emotional regulation.
+Being itself may be reinterpreted as patterned activity. Speaking in those terms, our universe comprises spatiotemporally situated brains ranging in complexity from individual particles to entire nervous systems. Sapience is consequently such a rare and significant privilege that personally acquiring it defies coincidence. To make sense of one's circumstances, one must invoke the MWI and posit that each brain subjectively perceives the world-branch in which it
