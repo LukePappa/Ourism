@@ -1,1 +1,1 @@
-To recognize oneself as pure being is one's true purpose.
+I am pure being.
