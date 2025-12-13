@@ -1,1 +1,1 @@
-Inner peace has infinite value and is the end of self-inflicted misery.
+One who has inner peace does not inflict misery upon themselves.
