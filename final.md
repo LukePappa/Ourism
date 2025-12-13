@@ -1,1 +1,1 @@
-Do not inflict misery upon yourself in response to external events, the actions of others, and personal shortcomings and you will attain inner peace, which is of infinite value 
+Stop inflicting misery upon yourself and you will cultivate inner peace, which is of infinite value.
