@@ -1,1 +1,1 @@
-Discern and enact appropriate emotional responses to situations and you will cultivate inner peace, which is of infinite value.
+Inner peace has infinite value and can be cultivated through disciplined emotional regulation.
