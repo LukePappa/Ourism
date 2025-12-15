@@ -1,1 +1,1 @@
-Stop inflicting misery upon yourself and you will attain inner peace, which is of infinite value.
+All misery is self-inflicted. One may choose to stop inflicting misery upon themselves, thereby attaining inner peace.
