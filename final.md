@@ -1,1 +1,1 @@
-Reason so as to not generate negative emotion.
+One who has inner peace has the ability to reason so as to not generate negative emotion.
