@@ -1,1 +1,1 @@
-Stop inflicting misery upon yourself and you will cultivate inner peace, which is of infinite value.
+Discern and enact appropriate emotional responses to situations and you will cultivate inner peace, which is of infinite value.
