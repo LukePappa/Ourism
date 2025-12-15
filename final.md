@@ -1,1 +1,1 @@
-One who has inner peace has the ability to reason so as to eliminate negative emotion. 
+One who has inner peace does not inflict misery upon themselves.
