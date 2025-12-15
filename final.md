@@ -1,1 +1,1 @@
-All misery is self-inflicted. One may choose to stop inflicting misery upon themselves, thereby attaining inner peace.
+One may choose to stop inflicting misery upon themselves, thereby attaining inner peace.
