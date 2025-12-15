@@ -1,1 +1,1 @@
-One may choose to stop inflicting misery upon themselves, thereby attaining inner peace.
+One may reason so as to not generate negative emotion, thereby attaining inner peace.
