@@ -1,1 +1,1 @@
-Inner peace has infinite value and can be cultivated through disciplined emotional regulation.
+Stop inflicting misery upon yourself and you will cultivate inner peace, which is of infinite value. 
