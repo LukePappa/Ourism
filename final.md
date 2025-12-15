@@ -1,1 +1,1 @@
-One may reason so as to not generate negative emotion, thereby attaining inner peace.
+Reason so as to not generate negative emotion.
