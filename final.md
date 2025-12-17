@@ -2,7 +2,7 @@
 Any naturalistic justification for existence must presuppose some element of what it seeks to explain. To avoid this circularity, it is necessary to posit a transcendent source: God. 
 
 
-By this definition, God is something totally outside 
+By this definition, God is something totally
 
 
 
