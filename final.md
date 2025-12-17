@@ -1,7 +1,4 @@
 
-Any naturalistic justification for existence must presuppose some element of what it seeks to explain. To avoid this circularity, it is necessary to posit a transcendent source: God. 
-
-
-By this definition, God is something wholly beyond this world. It's not even accurate to think of Him as "something". His love for creation, however, is an ever-present reality. Moreover, much as the intellect sees truth, the heart can sense His love. It purifies the faculty, bringing one closer to Him.
+Any naturalistic justification for existence must presuppose some element of what it seeks to explain. To avoid this circularity, it is necessary to posit a transcendent source: God. By this definition, God is wholly beyond the world. Even to think of Him as a “something” is already a distortion. Yet His love for creation remains an ever-present reality that the heart can sense. This love purifies the faculty, refining its capacity for perception and drawing one closer to Him.
 
 Existence itself comprises spatiotemporally situated observers ranging in complexity from individual particles to entire nervous systems. Sapience is consequently such a rare and significant privilege that personally gaining it defies coincidence. To make sense of one's circumstances, one must invoke the MWI and posit that each observer subjectively perceives the world-branch in which it continually grows in communion with God.
