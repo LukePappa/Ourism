@@ -5,5 +5,7 @@ Existence itself comprises spatiotemporally located observers ranging in complex
 
 
 God the uncreated Ground.
+
 God the uncreated Logos.
+
 God the uncreated Spirit.
