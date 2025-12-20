@@ -1,20 +1,8 @@
-Being, Logos, and Spirit.
-
-Being, consciousness, awaren
-
-
 God the Source: Being, consciousness, awareness. 
 
 God the Logos: Truth, reason, order.
 
-God the Spirit: Bliss, love Peace
-
-
-
-
-
-Truth, reason, and orderand love precede from being itself.
-
+God the Spirit: Bliss, love, peace.
 
 Any naturalistic justification for existence must presuppose some element of what it seeks to explain. To avoid this circularity, it is necessary to posit a transcendent source: God. God the Source is synonymous with being itself. 
 
