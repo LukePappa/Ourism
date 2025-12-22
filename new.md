@@ -1,1 +1,1 @@
-Being is everything and transcends everything. Abide as it.
+Being is all that is. It transcends everything and is everything. To abide as it is all one must do.
