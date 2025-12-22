@@ -1,1 +1,1 @@
-Being is all that it is. It transcends everything and is everything. Construing it as a physical universe, it comprises spatially and temporally located observers ranging in complexity from lone particles to entire nervous systems. Sapience is consequently such a rare and significant privilege that personally gaining it defies coincidence. To explain one's circumstances, one must invoke the MWI and posit that each observer subjectively perceives the world-branch in which it comes to self-realization.
+Being is all that it is. It transcends everything and is everything.
