@@ -1,1 +1,1 @@
-Being is all that it is. It transcends everything and is everything.
+Existence is all that it is. It transcends everything and is everything.
