@@ -1,1 +1,1 @@
-Being is all that is. It transcends everything and is everything. To abide as being is perfect fulfillment, or Ananda. The pleasures of the world distract one from pursuing Ananda and should therefore be rejected.
+Being is all that is. It transcends everything and is everything. To abide as being is perfect fulfillment, or Ananda. The pleasures of the world may distract one from pursuing Ananda and should therefore be set aside.
