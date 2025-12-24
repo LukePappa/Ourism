@@ -1,3 +1,3 @@
 Being is all that is. It transcends everything and is everything. To abide as being is all one must do. 
 
-Existence must be grounded in something outside itself; otherwise, all explanations would ultimately be circular and therefore baseless.
+Existence must be grounded in something outside itself; otherwise, all explanations would ultimately be circular.
