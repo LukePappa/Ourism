@@ -1,1 +1,1 @@
-Being transcends, grounds, and is everything. To abide as being is perfect fulfillment.
+Being transcends, grounds, and is everything. To abide as being is all one must do.
