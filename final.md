@@ -1,3 +1,1 @@
-Being is all that is. It transcends everything and is everything. To abide as being is all one must do. 
-
-Existence must be grounded in something outside itself; otherwise, all explanations would become circular and vacuous.
+Being transcends, grounds, and is everything. To abide as being is perfect fulfillment.
