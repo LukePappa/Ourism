@@ -1,1 +1,1 @@
-Existence must be grounded in something outside itself, otherwise all explanations would ultimately be circular and vacuous.
+To avoid circularity, existence must be justified by something beyond itself.
