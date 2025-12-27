@@ -1,1 +1,1 @@
-To avoid circularity, existence must be justified by something beyond itself.
+To avoid circularity, existence must be justified by something outside itself.
