@@ -1,1 +1,1 @@
-To avoid circular reasoning, existence must be justified by something outside itself.
+There must be a source of existence that transcends it.
