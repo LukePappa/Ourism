@@ -1,1 +1,1 @@
-To avoid circular reasoning, it is necessary to posit a ground of being that lies beyond it.
+Existence must be grounded in something outside itself, otherwise truth and reason themselves become circular, lacking any ultimate grounding.
