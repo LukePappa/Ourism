@@ -1,1 +1,8 @@
-God is the transcendent source of existence. Construed as a physical universe, existence may be said to comprise spatiotemporally located observers ranging in complexity from individual particles to entire nervous systems. Sapience is consequently such a rare and significant privilege that personally gaining it defies coincidence. To explain one's circumstances, one must invoke the MWI and posit that each observer subjectively perceives the world-branch in which they attune to God's presence indefinitely.
+God is the transcendent source of existence. One's true purpose is continual attunement to God's presence.
+
+
+
+ Construed as a physical universe, existence may be said to comprise spatiotemporally located observers ranging in complexity from individual particles to entire nervous systems. Sapience is consequently such a rare and significant privilege that personally gaining it defies coincidence. To explain one's circumstances, one must invoke the MWI and posit that each observer subjectively perceives the world-branch in which they attune to God's presence indefinitely.
+
+
+
