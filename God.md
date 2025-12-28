@@ -1,0 +1,1 @@
+God is the transcendent source of existence. By this defininition, He is outside the ontological order and thus completely unknowable. Nevertheless, much as the intellect can recognize truth, the heart can apprehend His divine love. It purifies the faculty, drawing one closer to Him.
