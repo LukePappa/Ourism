@@ -1,1 +1,1 @@
-God is the transcendent source of existence, and one's true purpose is ever-finer attunement to His presence.
+God is the transcendent source of existence, and one's true purpose is to live in His presence.
