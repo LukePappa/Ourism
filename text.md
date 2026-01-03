@@ -1,1 +1,1 @@
-This is being. To be is bliss.
+This is being. It is bliss.
