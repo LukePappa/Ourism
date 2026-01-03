@@ -1,1 +1,1 @@
-Being transcends, grounds, and is everything. To be is bliss.
+This is being. To be is bliss.
