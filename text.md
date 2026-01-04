@@ -1,3 +1,3 @@
 This is being. It transcends, grounds, and is everything. To be is bliss.
 
-Construed as a physical universe, being comprises spatiotemporally located observers ranging in complexity from individual particles to entire nervous systems. Sapience is consequently such a rare and significant privilege that personally acquiring it defies coincidence. To explain one's circumstances, one must invoke the MWI and posit that each observer subjectively perceives the world-branch in which they attain everlasting bliss.
+Construed as a physical universe, being comprises spatiotemporally located observers ranging in complexity from individual particles to entire nervous systems. Sapience is consequently such a rare and significant privilege that personally acquiring it defies coincidence. To explain one's circumstances, one must invoke the MWI and posit that each observer subjectively perceives the world-branch in which they realize the everlasting bliss of being.
