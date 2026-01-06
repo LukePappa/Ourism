@@ -1,1 +1,1 @@
-To be is bliss.
+Be.
