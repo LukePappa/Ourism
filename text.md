@@ -1,1 +1,1 @@
-Being transcends, grounds, and is everything. I am one with it.
+This is being. I am one with it.
