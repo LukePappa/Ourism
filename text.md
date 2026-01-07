@@ -1,1 +1,1 @@
-This is you. You transcend, ground, and are immediate reality.
+This is being. It transcends, grounds, and is everything. To be is fulfillment.
