@@ -1,1 +1,1 @@
-This is you. You transcend, ground, and are immediate reality. Recognizing this brings perfect fulfillment. 
+This is you. You transcend, ground, and are immediate reality.
