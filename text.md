@@ -1,1 +1,1 @@
-This is you. You transcend, ground, and are immediate reality. To be is bliss.
+This is you. You transcend, ground, and are immediate reality. Recognizing this brings perfect fulfillment. 
