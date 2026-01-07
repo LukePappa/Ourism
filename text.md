@@ -1,1 +1,1 @@
-This is being. Identification with it brings perfect fulfillment.
+This is you. You transcend, ground, and are immediate reality. To be is bliss.
