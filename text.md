@@ -1,1 +1,1 @@
-This is being. I am one with it. In this recognition I am fulfilled.
+I am this.
