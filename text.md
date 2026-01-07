@@ -1,1 +1,1 @@
-This is being. It transcends, grounds, and is everything.
+This is being. It transcends, grounds, and is everything. To be is fulfillment.
