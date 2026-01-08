@@ -1,1 +1,1 @@
-Being transcends, grounds, and is everything. One's true purpose is to be one with being consciously, thereby attaining the perfect fulfillment of self-realization.
+Being transcends, grounds, and is everything. One's true purpose is conscious unity with being, thereby attaining the perfect fulfillment of self-realization.
