@@ -1,1 +1,1 @@
-I am this.
+Being transcends, grounds, and is everything. To be one with it is bliss.
