@@ -1,1 +1,1 @@
-Being transcends, grounds, and is everything. To be one with it is bliss.
+Being transcends, grounds, and is everything. To consciously be one with it brings bliss.
