@@ -1,1 +1,1 @@
-This is being. Being transcends, grounds, and is everything. True fulfillment may be found in conscious union with being.
+God transcends, grounds, and is everything. Conscious union with God is true fulfillment.
