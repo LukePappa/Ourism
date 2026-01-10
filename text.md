@@ -1,2 +1,2 @@
-This is being. It transcends, grounds, and is everything. Conscious union with it is true fulfillment.
+This is being. It is not limited to any particular thing. Conscious union with it is true fulfillment.
 
