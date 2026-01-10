@@ -1,1 +1,1 @@
-God transcends, grounds, and is everything. Conscious union with God is true fulfillment.
+God transcends, grounds, and forms everything. Union with Him is true fulfillment.
