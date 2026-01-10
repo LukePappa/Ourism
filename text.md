@@ -2,5 +2,5 @@ Being transcends, grounds, and is everything. Conscious union with it constitute
 
 God is the divine ground of being. Union with Him constitutes true fulfillment.
 
-The Divine transcends, grounds, and is everything. Conscious union with it constitutes true fulfillment.
+Divinty transcends, grounds, and is everything.
 
