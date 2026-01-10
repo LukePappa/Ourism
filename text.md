@@ -1,1 +1,1 @@
-God is the transcendent ground of existence. Union with God constitutes true fulfillment.
+God is the divine ground of existence. Union with God constitutes true fulfillment.
