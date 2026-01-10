@@ -1,2 +1,2 @@
-God is the divine ground of existence. Union with Him constitutes true fulfillment.
+God transcends, grounds, and is everything. Conscious union with Him is true fulfillment.
 
