@@ -1,1 +1,1 @@
-The essence of existence is the divine, or God. Oneness with God constitutes true fulfillment.
+The essence of existence is the divine, or God. Conscious oneness with God constitutes true fulfillment.
