@@ -1,1 +1,1 @@
-The essence of existence is the divine, or God. Conscious oneness with God constitutes true fulfillment.
+The essence of existence is the divine. Attunement to it is one's true purpose.
