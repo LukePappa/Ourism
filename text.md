@@ -1,1 +1,1 @@
-Being transcends, grounds, and is everything. To be is true fulfillment.
+Being transcends, grounds, and is everything. Conscious union with being constitutes true fulfillment.
