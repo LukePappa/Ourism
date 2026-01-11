@@ -1,1 +1,1 @@
-The essence of existence is the divine. Attunement to it is one's true purpose.
+The essence of existence is bliss. Attunement to it is one's true purpose.
