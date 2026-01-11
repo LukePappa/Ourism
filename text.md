@@ -1,1 +1,1 @@
-The essence of existence is the Divine. Strict asceticism, meditation, and emotional regulation are the means by which one may continually attune to it. Everlasting, ever-deepening union with the Divine is one's true purpose.
+The essence of existence is the Divine. Strict asceticism, meditation, and emotional regulation are the means by which one may continually attune to it. Eternal, ever-deepening union with the Divine is one's true purpose.
