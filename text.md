@@ -1,1 +1,1 @@
-Being transcends, grounds, and is everything. Everlasting oneness with it constitutes true fulfillment. 
+Being transcends, grounds, and is everything. To be one with being consciously is true fulfillment. 
