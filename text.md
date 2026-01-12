@@ -1,1 +1,1 @@
-The essence of existence is bliss. Attunement to it is one's true purpose.
+This is being. Being transcends, grounds, and is everything. Conscious union with it constitutes true fulfillment. 
