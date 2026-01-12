@@ -1,1 +1,1 @@
-The essence of existence is the Divine. One may attend to it through contemplative prayer. Everlasting union with the Divine constitutes true fulfillment.
+The essence of existence is the Divine. Union with the Divine through contemplative prayer constitutes true fulfillment.
