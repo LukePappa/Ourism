@@ -1,1 +1,1 @@
-The essence of existence is the Divine. One may unify with the Divine through contemplative prayer.
+The essence of existence is the Divine. One may attune themselves to it through contemplative prayer.
