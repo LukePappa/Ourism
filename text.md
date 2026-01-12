@@ -1,1 +1,1 @@
-The essence of existence is God. Asceticism, contemplative prayer, disciplined work, and emotional regulation are the means by which one may commune with Him. Eternal and ever-deepening union with God is one's true purpose.
+The essence of existence is the Divine. To be one with it consciously is true fulfillment.
