@@ -1,1 +1,1 @@
-The essence of existence is God. Union with Him constitutes true fulfillment.
+The essence of existence is bliss. Attunement to it is one's true purpose.
