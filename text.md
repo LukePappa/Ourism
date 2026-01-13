@@ -1,3 +1,3 @@
-Being transcends, grounds, and is everything. Union with the Divine through contemplative prayer constitutes true fulfillment. The fruits of the unitive life are discipline in asceticism, labor, and emotional regulation.
+The essence of existence is the Divine. Union with the Divine through contemplative prayer constitutes true fulfillment. The fruits of the unitive life are discipline in asceticism, labor, and emotional regulation.
 
 Existence can be thought of as comprising spatiotemporally located observers ranging in complexity from individual particles to entire nervous systems. Sapience is therefore such a rare and significant privilege that personally gaining it defies coincidence. To explain one's circumstances, one must invoke the MWI and posit that each observer subjectively perceives the world-branch in which it eventually enters into eternal union with being.
