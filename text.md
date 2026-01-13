@@ -1,3 +1,3 @@
-Being transcends, grounds, and is everything. Conscious union with it constitutes perfect bliss. The fruits of the unitive life are disciplined aceticism, labor, and emotional regulation.
+Being transcends, grounds, and is everything. Conscious union with it constitutes perfect bliss. The fruits of the unitive life are discipline in asceticism, labor, and emotional regulation.
 
 Being can be thought of as comprising spatiotemporally located observers ranging in complexity from individual particles to entire nervous systems. Sapience is therefore such a rare and significant privilege that personally gaining it defies coincidence. To explain one's circumstances, one must invoke the MWI and posit that each observer subjectively perceives the world-branch in which it eventually enters into eternal union with. being. Our cosmos may therefore be interpreted as an eternal and infinite act of self-realization.
