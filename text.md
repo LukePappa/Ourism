@@ -2,4 +2,4 @@ The essence of existence is the Divine. Union with the Divine through contemplat
 
 Existence can be thought of as comprising spatiotemporally located observers ranging in complexity from individual particles to entire nervous systems. Consequently, sapience is such a rare and significant privilege that personally gaining it defies coincidence. To explain one's circumstances, one must invoke the MWI and posit that each observer subjectively perceives the world-branch in which they experience ever-deepening union with the Divine.
 
-The Initiatory Stage represents the period of time in which one first encounters the Divine.
+The Initiatory Stage represents the period of time in which the Divine is first encountered.
