@@ -1,1 +1,1 @@
-The essence and telos of existence is the Divine.
+The essence of existence is the Divine. Attunement to it constitutes true fulfillment.
