@@ -1,1 +1,1 @@
-The essence of existence is the Divine. Attunement to the Divine through contemplative prayer is one's true purpose. The fruits of attunement are discipline in ascetic practice, social conduct, emotional regulation, and labor.
+The essence of existence is the Divine. Attunement to the Divine through contemplative prayer constitutes deification, the fruits of which are discipline in ascetic practice, social conduct, emotional regulation, and labor.
