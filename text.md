@@ -1,1 +1,1 @@
-The essence of existence is the Divine. One's true purpose is to attune to it. This may be done through contemplative prayer. The fruits of attunement are discipline in ascetic practice, social conduct, emotional regulation, and labor.
+The essence of existence is the Divine, and one’s true purpose is to attune to it through contemplative prayer. The fruits of attunement are discipline in ascetic practice, social conduct, emotional regulation, and labor.
