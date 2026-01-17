@@ -1,1 +1,1 @@
-The essence of existence is the Divine. Attunement to it constitutes true fulfillment.
+The essence of existence is the Divine, and attunement to it constitutes true fulfillment.
