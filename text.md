@@ -1,1 +1,1 @@
-This is being. It transcends, grounds, and is everything. To be one with being constitutes true fulfillment.
+This is being. It transcends, grounds, and is everything. Oneness with being constitutes true fulfillment.
