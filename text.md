@@ -1,1 +1,1 @@
-The essence of existence is the Divine. To attune to it is one's true purpose.
+The essence and telos of existence is the Divine.
