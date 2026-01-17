@@ -1,1 +1,1 @@
-The essence of existence is the Divine. To attend to it is one's true purpose.
+Attunement to the divine essence of existence is one's true purpose. 
