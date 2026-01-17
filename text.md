@@ -1,1 +1,1 @@
-Being transcends, grounds, and is everything. Union with it is one's true purpose. 
+Being transcends, grounds, and is everything. To be one with it constitutes true fulfillment.
