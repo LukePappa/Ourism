@@ -1,1 +1,1 @@
-Attunement to the divine essence of existence is one's true purpose, the fruits of which are disciplined ascetic practice, social conduct, emotional regulation, and labor.
+Attunement to the divine essence of existence is one's true purpose, the fruits of which are natural discipline in ascetic practice, social conduct, emotional regulation, and labor.
