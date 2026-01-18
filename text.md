@@ -1,1 +1,1 @@
-Being transcends, grounds, and is everything. Conscious union with it is one's telos.
+Being transcends, grounds, and is everything. Conscious union with it is one's true purpose.
