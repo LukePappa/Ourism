@@ -1,1 +1,1 @@
-The essence of existence is the Divine. Attunement to it through contemplative prayer constitutes true fulfillment and gives rise to effortlessly disciplined ascetic practice, social conduct, emotional regulation, and labor.
+The essence of existence is the Divine. Union with it through contemplative prayer constitutes true fulfillment and gives rise to effortlessly disciplined ascetic practice, social conduct, emotional regulation, and labor.
