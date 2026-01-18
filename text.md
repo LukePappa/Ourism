@@ -1,1 +1,1 @@
-The essence of existence is the Divine. One's true purpose to attune to it, giving rise to effortlessly disciplined ascetic practice, social conduct, emotional regulation, and labor. 
+The essence of existence is the Divine. One’s true purpose is to attune to it, which gives rise to effortlessly disciplined ascetic practice, social conduct, emotional regulation, and labor.
