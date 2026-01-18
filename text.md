@@ -1,1 +1,1 @@
-Attunement to the divine essence of existence is one's true purpose, giving rise to effortlessly disciplined ascetic practice, social conduct, emotional regulation, and labor.
+This is being. It transcends, grounds, and is everything. Conscious union with being is one's true purpose, giving rise to effortlessly disciplined ascetic practice, social conduct, emotional regulation, and labor.
