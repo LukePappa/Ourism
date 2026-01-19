@@ -1,1 +1,1 @@
-Attunement to the divine essence of existence is one's true purpose, giving rise to effortlessly disciplined ascetic practice, social conduct, emotional regulation, and labor.
+God is the divine ground of existence. One may attune themselves to God through contemplative prayer, the fruits of which being effortlessly disciplined ascetic practice, social conduct, emotional regulation, and labor.
