@@ -1,1 +1,1 @@
-Being transcends, grounds, and is everything. To be one with it consciously is our true purpose.
+Attunement to the divine essence of existence is one's true purpose, giving rise to effortlessly disciplined ascetic practice, social conduct, emotional regulation, and labor.
