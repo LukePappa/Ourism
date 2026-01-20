@@ -1,1 +1,1 @@
-I may attune myself to the divine essence of existence through contemplative prayer.
+Attune to the divine essence of existence.
