@@ -1,1 +1,1 @@
-Attune to the divine essence of existence through contemplative prayer.
+God is the divine essence of existence. Attunement to God through contemplative prayer is one's true purpose. 
