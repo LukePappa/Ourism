@@ -1,1 +1,1 @@
-Attunement to the divine essence of existence is my true purpose.
+I may attune myself to the divine essence of existence through contemplative prayer.
