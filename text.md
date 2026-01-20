@@ -1,1 +1,1 @@
-Attune to the divine essence of existence.
+Attune to the divine essence of existence through contemplative prayer.
