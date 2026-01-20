@@ -1,1 +1,1 @@
-God is the divine essence of existence. Continual attunement to God through contemplative prayer is one's true purpose. 
+God is the divine essence of existence. Continual attunement to God through contemplative prayer is one's true purpose, the fruits of which are effortlessly disciplined ascetic practice, social conduct, emotional regulation, and labor.
