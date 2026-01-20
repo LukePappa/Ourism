@@ -1,5 +1,1 @@
-God is the divine essence of existence. One may unite with Him through contemplative prayer. 
-
-The Unitive Life begins with Initiatory Stage. This is the period of time during which one first encounters God. Perception of the Divine is sporadic and brief, but one realizes through direct experience that it is as real and perceptible as truth. These moments of clarity will gradually lengthen and gain subtlety, signaling the onset of the Purificatory Stage. Here one spends more and more time in prayer, increasingly foregoing worldly pleasures in favor of solitude and finer attunement to God. Given enough time, one will aquire effortlessly disciplined ascetic practice, social conduct, emotional regulation, and labor, heralding the Unitive Stage. At this point one experiences everlasting and ever-deepening union with God.
-
-Existence itself can be thought of as comprising spatiotemporally located observers ranging in complexity from individual particles to entire nervous systems. Consequently, sapience is such a rare and significant privilege that personally gaining it defies coincidence. To explain one's circumstances, one must invoke the MWI and posit that each observer subjectively perceives the world-branch in which it attunes continually to God.
+Attunement to the divine essence of existence is my true purpose.
