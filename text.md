@@ -1,5 +1,3 @@
 Outwardly, one in Absolute Prayer lies fully prostrated, eyes closed and wholly silent, alone. Inwardly, there is complete humility and openess with a singular focus on the infinitely sacred and divine essence of existence, who is God. Lesser variations of the Absolute Prayer are preferable to nothing. 
 
-
-
-The fruits of attunement are effortless discipline in ascetic practice, social conduct, emotional regulation, and labor.
+Existence itself comprises spatiotemporally located observers ranging in complexity from individual particles to entire nervous systems. Consequently, sapience is such a rare and significant privilege that personally gaining it defies coincidence. To explain one's circumstances, one must invoke the MWI and posit that each observer subjectively perceives the world-branch in which it continually attunes to God. The fruits of attunement are effortless discipline in ascetic practice, social conduct, emotional regulation, and labor.
