@@ -1,3 +1,3 @@
-Outwardly, one in Absolute Prayer remains still, eyes closed, head bowed, and silent. Inwardly, they are perfectly attuned to the divine essence of existence that is God. Such devotion yields disciplined asceticism, social conduct, emotional regulation, and labor.
+Outwardly, one in Absolute Prayer remains still, eyes closed, head bowed, and silent. Inwardly, they are perfectly attuned to the divine essence of existence that is God. Such practice yields disciplined asceticism, social conduct, emotional regulation, and labor.
 
 Existence can be thought of as comprising spatiotemporally located observers who range in complexity from individual particles to entire nervous systems. Consequently, sapience is such a rare and significant privilege that personally gaining it defies coincidence. To explain one's circumstances, one must invoke the MWI and posit that each observer subjectively perceives the world-branch of ever-deepening attunement to God.
