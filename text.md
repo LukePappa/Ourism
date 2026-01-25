@@ -1,1 +1,1 @@
-Outwardly, one in Absolute Prayer remains still, eyes closed, head bowed, and silent. Inwardly, they are perfectly attuned to the divine essence of existence that is God. Continuous prayer is one's true purpose.
+Outwardly, one in Absolute Prayer remains still, eyes closed, head bowed, and silent. Inwardly, there is perfect attunement to the divine essence of existence that is God. Union with God is one's true purpose.
