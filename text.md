@@ -1,1 +1,1 @@
-Outwardly, one in Absolute Prayer remains still, eyes closed, head bowed, and silent. Inwardly, there is perfect attunement to the divine essence of existence that is God.
+Outwardly, one in Absolute Prayer remains still, eyes closed, head bowed, and silent. Inwardly, there is perfect attunement to God, the divine essence of existence.
