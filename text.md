@@ -1,1 +1,1 @@
-Outwardly, one in Absolute Prayer remains still and silent, with eyes closed and head bowed. Inwardly, there is complete surrender to God, the sacred and divine essence of existence. Such union is one's true purpose.
+Outwardly, one in Absolute Prayer remains still and silent, with eyes closed and head bowed. Inwardly, there is complete surrender to God, the divine essence of existence. Such union is one's true purpose.
