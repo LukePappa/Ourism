@@ -1,1 +1,1 @@
-Outwardly, one in Absolute Prayer remains still and silent, with eyes closed and head bowed. Inwardly, there is perfect attunement to the divine essence of existence. Such union is one's true purpose.
+Be one with the divine essence of existence.
