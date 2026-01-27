@@ -1,1 +1,1 @@
-Be one with the divine essence of existence.
+Surrender yourself to the divine essence of existence.
