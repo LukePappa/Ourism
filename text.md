@@ -1,1 +1,1 @@
-Surrender yourself to the divine essence of existence.
+Outwardly, one in Absolute Prayer lies fully prostrated, eyes closed, silent, and alone. Inwardly, there is complete surrender to God, the infinitely sacred and divine essence of existence. The external signs of attunement are effortless discipline in ascetic practice, social conduct, emotional regulation, and labor.
