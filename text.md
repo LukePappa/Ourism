@@ -1,3 +1,3 @@
-Outwardly, one in Absolute Prayer is alone and silent, lying prostrate with their eyes closed. Inwardly, there is total surrender to God's divine love. bears discipline in ascetic practice, social conduct, emotional regulation, and labor.
+Inwardly, one in Absolute Prayer is totally surrendered to God's divine love. This love overflows, manifesting outwardly as disciplined ascetic practice, social conduct, emotional regulation, and labor.
 
 Existence can be thought of as comprising spatiotemporally located observers who range in complexity from individual particles to entire nervous systems. Consequently, sapience is such a rare and significant privilege that personally gaining it defies coincidence. To explain one's circumstances, one must invoke the MWI and posit that each observer subjectively perceives the world-branch of ever-deepening intimacy with God.
