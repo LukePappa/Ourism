@@ -1,4 +1,3 @@
-The divine essence of existence may be called Ennea. Attunement to Ennea is one's true purpose, yielding disciplined ascetic practice, social conduct, emotional regulation, and labor.
+God is the creator of the universe, whose nature is beyond it. God projects divine love onto creation, which is as real and perceptible as truth. Surrendering oneself completely to it yields disciplined ascetic practice, social conduct, emotional regulation, and labor. 
 
-
-God is the creator of the universe, whose nature is beyond it. God projects divine love onto 
+Existence itself can be thought of as comprising spatiotemporally located observers ranging in complexity from individual particles to entire nervous systems. Consequently, sapience is such a rare and significant privilege that personally gaining it defies coincidence. To explain one's circumstances, one must invoke the MWI and posit that each observer subjectively perceives the world-branch of ever-deepening attunement to God's love.
