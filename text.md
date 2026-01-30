@@ -1,1 +1,1 @@
-Your true purpose is to surrender yourself completely to God, the eternal, omnipotent, omnipresent, omnibenevolent and omniscient creator of the universe, whose nature is Divine Love.
+Your purpose is to surrender yourself completely to God, the eternal, omnipotent, omnipresent, omnibenevolent and omniscient creator of the universe, whose nature is Divine Love.
