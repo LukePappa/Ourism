@@ -1,1 +1,1 @@
-Surrender yourself completely to God, the eternal, all-powerful, all-present, all-good and all-knowing creator of the universe, whose nature is Divine Love. This inward state is reflected outwardly as bodily, social, emotional, and vocational discipline.
+Surrender yourself completely to God, the eternal, all-powerful, all-present, all-good and all-knowing creator of the universe, whose nature is Divine Love. This inward state will be reflected outwardly as bodily, social, emotional, and vocational discipline.
