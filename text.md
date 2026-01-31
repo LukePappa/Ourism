@@ -8,6 +8,6 @@ Then comes loving surrender: the bliss deepens into a clear experience of Divine
 
 Next is complete surrender: Divine Love consumes you and you feel God throughout your whole body. This is a state of ecstasy and rapture.
 
-The final stage is utter, absolute surrender: union with God is attained.
+The final stage is utter, absolute surrender: union with God.
 
 Over time the frequency, duration, and depth of these experiences tend to increase, though every day is different.
