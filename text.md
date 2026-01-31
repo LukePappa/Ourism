@@ -8,6 +8,6 @@ The next degree of surrender is loving surrender, where bliss becomes more defin
 
 The next degree of surrender is complete surrender, where divine love consumes you. You feel God in your whole body. 
 
-The final degree of surrender is utter and complete surrender, where union with God is reached.
+The final degree of surrender is utter and complete surrender, where union with God is attained.
 
-The frequency, length, and degree of these experiences will trend upward with time, but each day is different.
+The frequency, length, and degree of surrendering trend upward with time, but each day is different.
