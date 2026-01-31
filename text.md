@@ -1,6 +1,6 @@
 Your purpose is to surrender yourself utterly and completely to God, the eternal, omnipotent, omnipresent, omnibenevolent and omniscient creator of the universe, whose nature is Divine Love.
 
-Your baseline is blind surrender: you surrender to no particular thing, and a calm sobriety and humility settle over you.
+Your baseline is blind surrender: you surrender to nothing in particular, and a calm sobriety and humility settle over you.
 
 The next level is blissful surrender: blind surrender is touched by a faint spark of bliss.
 
