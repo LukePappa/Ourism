@@ -4,9 +4,9 @@ Your baseline is blind surrender: you surrender to no particular thing, and a ca
 
 The next level is blissful surrender: blind surrender is touched by a faint spark of bliss.
 
-Then comes loving surrender: the bliss deepens into a clear experience of divine love; you feel God more confidently and can direct your surrender toward that presence.
+Then comes loving surrender: the bliss deepens into a clear experience of Divine Love; you feel God more confidently and can direct your surrender toward that presence.
 
-Next is complete surrender: divine love consumes you and you feel God throughout your whole body. This is a state of ecstasy and rapture.
+Next is complete surrender: Divine Love consumes you and you feel God throughout your whole body. This is a state of ecstasy and rapture.
 
 The final stage is utter, absolute surrender: union with God is attained.
 
