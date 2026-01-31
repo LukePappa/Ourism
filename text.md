@@ -1,13 +1,13 @@
 Your purpose is to surrender yourself utterly and completely to God, the eternal, omnipotent, omnipresent, omnibenevolent and omniscient creator of the universe, whose nature is Divine Love.
 
-Your baseline is blind surrender, where you surrender yourself to nothing in particular, but calmness, sobriety, and humility come over you.
+Your baseline is blind surrender: you surrender to no particular thing, and a calm sobriety and humility settle over you.
 
-The next degree of surrender is blissful surrender, where blind surrender is met by a little spark of bliss. The bliss is faint.
+The next level is blissful surrender: blind surrender is touched by a faint spark of bliss.
 
-The next degree of surrender is loving surrender, where bliss becomes more defined as divine love. You feel God more confidently and you can now direct your surrendering at something.
+Then comes loving surrender: the bliss deepens into a clear experience of divine love; you feel God more confidently and can direct your surrender toward that presence.
 
-The next degree of surrender is complete surrender, where divine love consumes you. You feel God in your whole body. 
+Next is complete surrender: divine love consumes you and you feel God throughout your whole body.
 
-The final degree of surrender is utter and complete surrender, where union with God is attained.
+The final stage is utter, absolute surrender: union with God is attained.
 
-The frequency, length, and degree of surrendering will trend upward with time, but each day is different.
+Over time the frequency, duration, and depth of these experiences tend to increase, though every day is different.
