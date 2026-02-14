@@ -1,1 +1,1 @@
-Your purpose is to surrender yourself utterly and completely to God, the eternal, omnipotent, omnipresent, omnibenevolent, and omniscient ground of existence, who is Divine Love.
+Your purpose is to surrender yourself utterly and completely divine Love, which is the very essence of existence.
