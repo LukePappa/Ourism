@@ -1,1 +1,1 @@
-Your purpose is to surrender yourself utterly and completely to God, the eternal, omnipotent, omnipresent, omnibenevolent, and omniscient creator of the universe, who is made known to you as Divine Love.
+Your purpose is to surrender yourself utterly and completely to God, the eternal, omnipotent, omnipresent, omnibenevolent, and omniscient creator of the universe, who is Divine Love.
