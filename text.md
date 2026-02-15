@@ -1,1 +1,1 @@
-Your purpose is to surrender yourself utterly and completely to God, the eternal, omnipresent, all-powerful, all-good, and all-knowing creator and sustainer of existence, who is Divine Love. Your inward progress will be reflected outwardly as increasing bodily, social, emotional, and vocational discipline. 
+Your purpose is to surrender yourself utterly and completely to God, the eternal, omnipresent, all-powerful, all-good, and all-knowing creator and sustainer of existence, who is Divine Love.
