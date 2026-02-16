@@ -1,3 +1,1 @@
-Your purpose is to surrender yourself utterly and completely to God, the eternal, omnipresent, omnipotent, omniscient, and omnibenevolent creator and sustainer of existence, who is Divine Love.
-
-Existence itself can be thought of as comprising spatiotemporally located observers who range in complexity from individual particles to entire nervous systems. Consequently, sapience is such a rare and significant privilege that personally gaining it defies coincidence. To explain one's circumstances, one must invoke the MWI and posit that each observer subjectively perceives the world-branch of ever-deepening surrender to Divine Love. This is the nature of His providence.
+Your purpose is to surrender yourself utterly and completely to divine love, the only reality.
