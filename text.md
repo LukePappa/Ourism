@@ -1,3 +1,1 @@
 Your purpose is to surrender yourself utterly and completely to divine love, the only reality. Your inward progress will be reflected outwardly as bodily, social, emotional, and vocational discipline.
-
-Existence can be more derivatively understood as comprising spatiotemporally located observers who range in complexity from individual particles to entire nervous systems. The rarity and significance of sapience consequently makes personally gaining it defy coincidence. To account for one's circumstances, one must invoke the MWI and posit that each observer subjectively perceives the world-branch of ever-finer attunement to reality.
