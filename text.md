@@ -1,1 +1,1 @@
-The universe comprises spatiotemporally located observers who range in complexity from individual particles to entire nervous systems. Each observer subjectively perceives the world-branch of continual attunement to love, their substance.
+Your purpose is to surrender yourself utterly and completely to divine love, the substance of reality.
