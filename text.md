@@ -1,1 +1,1 @@
-Your purpose is to surrender yourself utterly and completely to divine love, the only reality. 
+The universe comprises spatiotemporally located observers who range in complexity from individual particles to entire nervous systems. Each observer subjectively perceives the world-branch in which they come to surrender themselves utterly and completely to divine love, the only reality.
