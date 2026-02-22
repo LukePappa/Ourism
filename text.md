@@ -1,1 +1,1 @@
-The universe comprises souls who range from individual particles to entire nervous systems. Each soul subjectively perceives the world-branch of ever-deepening surrender to God, the eternal, omnipotent, omnipresent, and omnibenevolent creator of the universe, who is Divine Love.
+Your purpose is to surrender yourself utterly and completely to divine love, the only reality. 
