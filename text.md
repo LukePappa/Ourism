@@ -1,1 +1,1 @@
-The universe comprises spatiotemporally located observers who range in complexity from individual particles to entire nervous systems. Each observer subjectively perceives the world-branch in which they become increasingly conscious of divine love, the only reality.
+The universe comprises souls who range from individual particles to entire nervous systems. Each soul subjectively perceives the world-branch of ever-deepening surrender to God, the eternal, omnipotent, omnipresent, and omnibenevolent creator of the universe, who is Divine Love.
