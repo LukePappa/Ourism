@@ -1,1 +1,1 @@
-Outwardly, one in Absolute Prayer is seated and silent, with their eyes closed and head bowed. Inwardly they have surrendered themselves utterly and completely to divine love, the only reality. Such is their end.
+Your purpose is to surrender yourself utterly and completely to divine love, the only reality.
