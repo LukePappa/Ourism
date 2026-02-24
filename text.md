@@ -1,1 +1,3 @@
-The universe comprises spatiotemporally located observers who range in complexity from individual particles to entire nervous systems. Given this, sapience is such a rare and significant privilege that personally gaining it defies coincidence. To explain one's circumstances, one must invoke the MWI and posit that each observer subjectively perceives the world-branch of ever-finer mental clarity.
+The universe comprises spatiotemporally located observers who range in complexity from individual particles to entire nervous systems. Given this, sapience is such a rare and significant privilege that personally gaining it defies coincidence. To explain one's circumstances, one must invoke the MWI and posit that each observer subjectively perceives the world-branch of ever-finer mental clarity. 
+
+Mental clarity may be cultivated through practicing bodily, social, emotional, and vocational discipline.
