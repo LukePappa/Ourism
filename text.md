@@ -1,3 +1,3 @@
 The universe comprises spatiotemporally located observers who range in complexity from individual particles to entire nervous systems. Given this, sapience is such a rare and significant privilege that personally gaining it defies coincidence. To explain one's circumstances, one must invoke the MWI and posit that each observer subjectively perceives the world-branch of growing mental clarity, the culmination of which being the direct apprehension of divine love as the only reality. The cosmos can therefore be interpreted as an eternal and infinite act of self-realization.
 
-The basis of mental clarity is and always has been humility. It is the disposition from which flows bodily, social, emotional, and vocational discipline.
+Humility is yhe basis of mental clarity, and it will express itself through bodily, social, emotional, and vocational discipline.
