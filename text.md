@@ -1,3 +1,3 @@
 The universe comprises spatiotemporally located observers who range in complexity from individual particles to entire nervous systems. Given this, sapience is such a rare and significant privilege that personally acquiring it defies coincidence. To explain one's circumstances, one must invoke the MWI and posit that each observer subjectively perceives the world-branch of growing mental clarity, the culmination of which being the direct apprehension of divine love as the only reality. The cosmos can thus be summarized as an infinite and eternal act of self-realization.
 
-The most direct and effective way to cultivate mental clarity is to summon it at will. The skill at doing so can only be acquired through constant practice.
+The most direct and effective way to cultivate mental clarity is simply to summon it at will. The skill at doing so can only be acquired through constant practice.
