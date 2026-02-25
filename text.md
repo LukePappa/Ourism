@@ -1,3 +1,3 @@
 The universe comprises spatiotemporally located observers who range in complexity from individual particles to entire nervous systems. Given this, sapience is such a rare and significant privilege that personally gaining it defies coincidence. To explain one's circumstances, one must invoke the MWI and posit that each observer subjectively perceives the world-branch of growing mental clarity, the culmination of which being the direct apprehension of divine love as the only reality. Existence can therefore be summarized as eternal and infinite act of self-realization. 
 
-The apex of mental clarity is available to anyone willing to commit themselves to sustained bodily, social, emotional, and vocational discipline.
+The apex of mental clarity is available to anyone willing to commit themselves to developing bodily, social, emotional, and vocational discipline.
