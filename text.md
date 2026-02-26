@@ -1,4 +1,4 @@
 The universe comprises spatiotemporally located individuals who range in complexity from singular particles to entire nervous systems. Given this, sapience is such a rare and significant privilege that personally acquiring it defies coincidence. To explain one's circumstances, one must invoke the MWI and posit that each individual subjectively perceives the world-branch of increasing mental clarity, the culmination of which being the direct apprehension of divine love as the only reality. The cosmos can thus be summarized as an infinite and eternal act of self-realization.
 
 
-Existence is an infinite and eternal act of self-realization, comprising individuals who each perceive a world-branch in which they gain the mental clarity to directly apprehend divine love as the only reality.
+Existence is an infinite and eternal act of self-realization, comprising individuals who each perceive a world-branch in which they personally gain the mental clarity to directly apprehend divine love as the only reality.
