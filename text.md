@@ -1,2 +1,2 @@
-Your purpose is to love.
+Your purpose is to love selflessly and unconditionally.
 
