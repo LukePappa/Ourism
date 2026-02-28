@@ -1,1 +1,1 @@
-Human beings have the capacity to cultivate mental clarity, and may dedicate themselves to that end. For those who choose that path, take up the habit of mustering mental clarity at will, as this is the most direct and effective way for you to progress.
+Human beings have the capacity to cultivate mental clarity, and may dedicate themselves to that end. For those who choose this path, take up the habit of mustering mental clarity at will, as this is the most direct and effective way for you to progress.
