@@ -1,1 +1,1 @@
-Human beings have the capacity to cultivate mental clarity, and may dedicate themselves to that end. For those who choose this path, the most direct and effective way to develop clarity is to summon it at will repeatedly.
+Human beings have the capacity to cultivate mental clarity, and may dedicate themselves to that end. For those who choose that path, the most direct and effective way to cultivate mental clarity is simply to muster it at will repeatedly, regardless of your external circumstances.
