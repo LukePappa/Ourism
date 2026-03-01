@@ -1,1 +1,1 @@
-Existence is an infinite and eternal act of self-realization, comprising individuals who range from singular particles to entire nervous systems and who each perceive a timeline in which they gain the mental clarity to directly apprehend divine love as the only reality.
+Existence comprises individuals who each perceive a timeline in which they attain everlasting bliss through the cultivation of mental clarity.
