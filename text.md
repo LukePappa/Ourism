@@ -1,3 +1,1 @@
-Outwardly, one in Absolute Prayer is alone and silent, with their eyes closed and head bowed. Inwardly, they are utterly and completely surrendered to God, the eternal, omnipresent, omnipotent, omnibenevolent, and omniscient creator of existence, whose nature is divine love. 
-
-Existence itself comprises individuals who range from singular particles to entire nervous systems and who each perceive a timeline in which they grow in intimacy with God, culminating in Absolute Prayer.
+Existence is an infinite and eternal act of self-realization, comprising individuals who range from singular particles to entire nervous systems and who each perceive a world-branch in which they gain the mental clarity to directly apprehend bliss as the only reality. Human beings have the capacity to cultivate mental clarity by habitually summoning it, and may dedicate themselves to that end.
