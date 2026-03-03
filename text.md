@@ -1,1 +1,1 @@
-One may cultivate the mental clarity necessary to apprehend bliss as the only reality by mustering it repeatedly.
+Human beings have the capacity to cultivate mental clarity by mustering it repeatedly, and may devote themselves to this end.
