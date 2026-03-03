@@ -1,1 +1,1 @@
-Being transcends, grounds, and is everything. To abide as it is one's true purpose.
+Being transcends, grounds, and is everything. To be one with it consciously is your true purpose.
