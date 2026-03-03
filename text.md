@@ -1,1 +1,1 @@
-Human beings have the capacity to cultivate mental clarity, and may devote themselves to this end. The simplest and most effective way to cultivate mental clarity is to muster it repeatedly.
+Human beings have the capacity to muster mental clarity, and may devote themselves to this end.
