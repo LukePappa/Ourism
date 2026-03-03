@@ -1,1 +1,1 @@
-The cosmos is an act of self-realization in which every part of itself perceives a timeline in which it gains the capacity to directly apprehend bliss as the only reality. Human beings have this capacity, and may cultivate the mental clarity necessary to realize it.
+The cosmos is an act of self-realization in which every part of itself perceives a timeline wherein it gains the capacity to directly apprehend bliss as the only reality. Human beings have this capacity, and may cultivate the mental clarity necessary to realize it.
