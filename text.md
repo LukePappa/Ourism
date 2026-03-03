@@ -1,1 +1,1 @@
-Human beings have the capacity to cultivate mental clarity, and may devote themselves to this end. The best way to cultivate mental clarity is simply to muster it repeatedly. This may be assisted by taking a deep breath, closing your eyes, and bowing your head each time you do so.
+Human beings have the capacity to cultivate mental clarity, and may devote themselves to this end. The best way to cultivate mental clarity is simply to muster it repeatedly. This may be assisted by taking a deep breath, closing your eyes, and bowing your head.
