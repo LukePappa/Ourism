@@ -1,1 +1,1 @@
-The universe is an infinite and eternal act of self-realization, where each particle of itself subjectively perceives a world-branch in which it comes to apprehend Brahman as the only reality. You have the capacity to summon the mental clarity requisite for self-realization, and may devote yourself to that end.
+Being transcends, grounds, and is everything. To abide as it is one's true purpose.
