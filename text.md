@@ -1,1 +1,1 @@
-Human beings have the capacity to cultivate mental clarity by habitually summoning it, and may devote themselves to this end.
+Human beings have the capacity to cultivate mental clarity by summoning it at will repeatedly, and may devote themselves to this end.
