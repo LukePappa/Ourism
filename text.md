@@ -1,1 +1,1 @@
-Being transcends, grounds, and is everything. To be is your true purpose.
+Being transcends, grounds, and is everything. Being is your true purpose.
