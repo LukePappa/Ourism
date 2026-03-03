@@ -1,4 +1,4 @@
-The cosmos are an infinite and eternal act of self-realization, comprising particles who each subjectively experience a world-branch in which they gain the capacity to directly apprehend bliss as the only reality. Human beings have such
+The cosmos are an infinite and eternal act of self-realization, comprising particles that subjectively experience a world-branch in which they gain the capacity to directly apprehend bliss as the only reality. Human beings have such
 
 
 
