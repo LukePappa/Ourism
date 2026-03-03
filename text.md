@@ -1,1 +1,1 @@
-Human beings have the capacity to cultivate mental clarity by mustering it repeatedly, and may devote themselves to this end.
+Human beings have the capacity to cultivate mental clarity, and may devote themselves to this end.
