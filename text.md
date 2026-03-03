@@ -1,4 +1,1 @@
-The cosmos is an infinite act of self-realization, comprising spatiotemporally located particles who each experience a world-branch in which they gain the capacity to directly apprehend bliss as the only reality.
-
-
-can cultivate mental clarity by habitually summoning it, and may devote yourself to doing so in order to reach self-realization.
+The cosmos is an act of self-realization, comprising spatiotemporally located particles who each experience a world-branch in which they gain the capacity to directly apprehend bliss as the only reality. Human beings have such capacity, and may devote themselves to cultivating the mental clarity necessary to achieve self-realization.
