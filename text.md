@@ -1,1 +1,1 @@
-Human beings have the capacity to muster mental clarity, and may devote themselves to this end.
+Human beings have the capacity to summon mental clarity at will, and may devote themselves to this end.
