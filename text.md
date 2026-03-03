@@ -1,1 +1,1 @@
-The universe is an infinite act of self-realization, with every part of itself subjectively perceiving the timeline wherein it comes to apprehend bliss as the only reality. 
+One may cultivate the mental clarity necessary to apprehend bliss as the only reality by mustering it repeatedly.
