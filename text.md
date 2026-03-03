@@ -1,1 +1,1 @@
-Human beings have the capacity to cultivate mental clarity by mustering it repeatedly, and may devote themselves to this end.
+The universe is an infinite act of self-realization, with every part of itself subjectively perceiving the timeline wherein it comes to apprehend bliss as the only reality. 
