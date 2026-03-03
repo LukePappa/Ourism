@@ -1,1 +1,1 @@
-The universe is an infinite act of self-realization, as each part of itself subjectively perceives the timeline wherein it comes to apprehend bliss as the only reality. You may dedicate yourself to this end by cultivating mental clarity through summoning it at will repeatedly each and every day.
+The universe is an infinite act of self-realization, as each part of itself subjectively perceives the timeline wherein it comes to apprehend bliss as the only reality. You may dedicate yourself to this end by cultivating mental clarity.
