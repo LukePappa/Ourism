@@ -1,1 +1,1 @@
-The universe is an infinite act of self-realization, with every part of itself perceiving a timeline wherein it comes to apprehend bliss as the only reality. You have the capacity for self-realization and may dedicate yourself to that end by cultivating mental clarity through summoning it at will each and every day.
+Human beings have the capacity to cultivate mental clarity by habitually summoning it, and may dedicate themselves to this end.
