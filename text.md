@@ -1,1 +1,1 @@
-Being is true fulfillment.
+To be is true fulfillment.
