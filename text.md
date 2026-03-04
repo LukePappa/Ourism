@@ -1,1 +1,1 @@
-One's purpose is Ennea, which is perfect fulfillment through being itself.
+Perfect fulfillment may be found in the act of existing itself.
