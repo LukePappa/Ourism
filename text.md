@@ -1,1 +1,1 @@
-Perfect fulfillment may be found in being.
+Perfect fulfillment may be found in the act of being itself.
