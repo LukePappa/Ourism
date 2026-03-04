@@ -1,1 +1,1 @@
-Perfect fulfillment may be found in the act of existing itself.
+The perfect fulfillment that may be found in the act of existing itself is called Ennea. To pursue Ennea is to be an Ourite.
