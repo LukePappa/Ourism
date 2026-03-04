@@ -1,1 +1,1 @@
-Your purpose is to find perfect fulfillment in being itself.
+Your purpose is to find perfect fulfillment in being.
