@@ -1,1 +1,1 @@
-True fulfillment may be found in existence itself.
+One's purpose is to find perfect fulfillment in the very act of existing.
