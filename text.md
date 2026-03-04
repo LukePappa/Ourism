@@ -1,1 +1,1 @@
-Being transcends, grounds, and is everything. To abide as being constitutes true fulfillment.
+To be constitutes true fulfillment.
