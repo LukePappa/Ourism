@@ -1,1 +1,1 @@
-Human beings have the capacity to find perfect fulfillment in the act of existing itself, and may devote themselves to this end.
+Human beings have the capacity to find perfect fulfillment in the act of existing itself, and they may devote themselves to that pursuit 
