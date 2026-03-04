@@ -1,1 +1,1 @@
-Human beings have the capacity to find perfect fulfillment in the act of existing itself and may pursue this way of life, called Ennea.
+One may find perfect fulfillment in the act of existing itself.
