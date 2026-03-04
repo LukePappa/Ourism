@@ -1,1 +1,1 @@
-Perfect fulfillment may be found in simply existing, and one may dedicate themselves to this end.
+Perfect fulfillment may be found in simply existing, and one may dedicate oneself to this end.
