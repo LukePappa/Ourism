@@ -1,1 +1,1 @@
-To be is true fulfillment.
+Your purpose is to find perfect fulfillment in the act of being.
