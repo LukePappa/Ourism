@@ -1,1 +1,1 @@
-Your purpose is to find perfect fulfillment in the very act of being.
+Perfect fulfillment may be found in being itself.
