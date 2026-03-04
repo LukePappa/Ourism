@@ -1,1 +1,1 @@
-To be constitutes true fulfillment.
+Being is true fulfillment.
