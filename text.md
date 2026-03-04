@@ -1,1 +1,1 @@
-Your purpose is to abide as being, which transcends, grounds, and is everything.
+Being transcends, grounds, and is everything. To abide as being constitutes true fulfillment.
