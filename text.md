@@ -1,1 +1,1 @@
-One who devotes oneself to cultivating the fulfillment derived smnply from existing is an Ourite.
+The fulfillment derived simply from existing is called Ennea. One who devotes oneself to cultivating Ennea is an Ourite.
