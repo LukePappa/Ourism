@@ -1,1 +1,1 @@
-Fulfillment that comes simply from existing is called bliss. One who devotes oneself to cultivating Ennea is an Ourite.
+Fulfillment that comes simply from existing is called Ennea. One who devotes oneself to cultivating Ennea is an Ourite.
