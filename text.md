@@ -1,1 +1,1 @@
-Fulfillment derived from the act of existing itself is called Ennea. 
+Fulfillment derived simply from existing is called Ennea. 
