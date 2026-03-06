@@ -1,1 +1,1 @@
-Fulfillment derived simply from existing is called Ennea. One who cultivates Ennea is an Ourite.
+Fulfillment derived from the act of existing itself is called Ennea. One who cultivates Ennea is an Ourite.
