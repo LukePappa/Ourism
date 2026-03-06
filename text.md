@@ -1,1 +1,1 @@
-The fulfillment derived from existence itself is called Ennea. 
+Fulfillment derived from existence itself is called Ennea. 
