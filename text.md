@@ -1,3 +1,1 @@
-The fulfillment derived from the act of existing itself is called Ennea. To cultivate Ennea, simply be.
-
-Existence comprises spatiotemporally located individuals who range in complexity from individual particles to entire nervous systems. Each individual subjectively perceives the world-branch in which it comes to find everlasting and perfect fulfillment in the act of existing itself, a state of being called Ennea. Humans may attain Ennea 
+Existence comprises spatiotemporally located individuals who range in complexity from singular particles to entire nervous systems. Each individual subjectively perceives the world-branch in which it comes to find everlasting and perfect fulfillment in the act of existing itself, attaining Ennea. Humans beings have the capacity for Ennea
