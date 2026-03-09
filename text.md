@@ -1,1 +1,1 @@
-Your purpose is to attain Ennea, which is everlasting and perfect fulfillment in the act of existing itself. To cultivate Ennea, simply be.
+Ennea is everlasting and perfect fulfillment in the act of existing itself. To cultivate Ennea, simply be.
