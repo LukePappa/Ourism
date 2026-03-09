@@ -1,1 +1,1 @@
-Existence comprises spatiotemporally located particles who each subjectively perceive the world-branch in which they reach the highest state of being: everlasting and perfect fulfillment in the act of existing itself, or Ennea. To cultivate Ennea, simply be.
+Every particle of the cosmos subjectively perceives the world-branch in which it reaches the highest state of being: everlasting and perfect fulfillment in the act of existing itself, or Ennea. To cultivate Ennea, simply be.
