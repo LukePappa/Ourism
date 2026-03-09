@@ -1,1 +1,1 @@
-The entire cosmos subjectively perceives the world-branch in which it reaches the highest state of being: everlasting and perfect fulfillment in the act of existing itself, or Ennea. To cultivate Ennea, simply be.
+The entire universe subjectively perceives the world-branch in which it reaches the highest state of being: everlasting and perfect fulfillment in the act of existing itself, or Ennea. To cultivate Ennea, simply be.
