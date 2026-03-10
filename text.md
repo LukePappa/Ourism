@@ -1,1 +1,1 @@
-Every particle of existence subjectively experiences a timeline in which it reaches the highest state of being: everlasting and perfect fulfillment derived from the act of existing itself. To cultivate it, simply be.
+Every particle of existence subjectively experiences a timeline in which it reaches the highest state of being: everlasting and perfect fulfillment derived from the act of existing itself. To cultivate that fulfillment, simply be.
