@@ -1,1 +1,1 @@
-Your purpose is simply to be.
+Your purpose is to be.
