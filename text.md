@@ -1,1 +1,1 @@
-Every particle of existence is subject to the world-branch in which it attains everlasting and perfect fulfillment in simply being.
+Every particle of existence is subject to the timeline in which it finds everlasting and perfect fulfillment in simply being.
