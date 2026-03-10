@@ -1,1 +1,1 @@
-To derive fulfillment from the act of existing itself, simply be.
+Your purpose is simply to be.
