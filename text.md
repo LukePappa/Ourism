@@ -1,1 +1,1 @@
-The fulfillment derived from the act of existing itself is called Ennea. To cultivate Ennea, simply be.
+To derive fulfillment from the act of existing itself, simply be.
