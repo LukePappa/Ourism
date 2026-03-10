@@ -1,1 +1,1 @@
-Your purpose is to be.
+Every particle of existence subjectively experiences a timeline in which it comes to find everlasting and perfect fulfillment in the act of existing itself, attaining Ennea. To cultivate Ennea, simply be.
