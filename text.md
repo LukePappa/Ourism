@@ -1,1 +1,1 @@
-Each particle of existence is subjected to the world-branch in which it reaches the highest state of being: everlasting and perfect fulfillment derived from the act of existing itself. To cultivate this state, simply be.
+Every particle of existence is subjected to the world-branch in which it reaches the highest state of being: everlasting and perfect fulfillment derived from the act of existing itself. To cultivate this state, simply be.
