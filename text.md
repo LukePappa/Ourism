@@ -1,1 +1,1 @@
-Every particle of existence is subject to a world-branch in which it eventually finds everlasting and perfect fulfillment in simply being.
+Every particle of existence subjectively experiences a world-branch in which it eventually finds everlasting and perfect fulfillment in simply being.
