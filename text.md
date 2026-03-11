@@ -1,1 +1,1 @@
-Every particle of existence is subject to the timeline in which it comes to find everlasting and perfect fulfillment in being itself.
+Every particle of existence is subject to the timeline in which it comes to find everlasting and perfect fulfillment in simply being.
