@@ -1,1 +1,1 @@
-Being transcends, grounds, and is everything. Conscious union with it is your true purpose.
+Being transcends, grounds, and is everything. To be one with it is your true purpose.
