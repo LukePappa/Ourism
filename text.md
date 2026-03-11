@@ -1,1 +1,1 @@
-Your purpose is to be.
+Being is your purpose.
