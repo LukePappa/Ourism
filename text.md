@@ -1,1 +1,1 @@
-Every particle of existence is subject to a timeline in which it comes to find everlasting and perfect fulfillment in simply being, attaining Ennea.
+Every particle of existence is subject to a timeline in which it comes to find everlasting and perfect fulfillment in the act of existing itself.
