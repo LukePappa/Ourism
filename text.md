@@ -1,1 +1,1 @@
-Being is your purpose.
+Simply be.
