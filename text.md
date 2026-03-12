@@ -1,1 +1,1 @@
-Being transcends, grounds, and is everything. To be unified with it consciously is your ultimate end.
+Every particle of existence is subject to the world-branch in which it awakens to pure being.
