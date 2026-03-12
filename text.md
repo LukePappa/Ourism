@@ -1,1 +1,1 @@
-Every particle of existence is subject to the world-branch in which it awakens to pure being.
+Perfect, everlasting fulfillment may be derived from the act of existing itself. To cultivate it, simply be.
