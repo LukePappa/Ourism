@@ -1,1 +1,1 @@
-Every particle of existence is subject to the world-branch in which it reaches conscious unity with being.
+Being transcends, grounds, and is everything. Conscious unity with it is your true purpose.
