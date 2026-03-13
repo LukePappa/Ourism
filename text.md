@@ -1,1 +1,1 @@
-One's purpose is to surrender oneself utterly and completely to God, the eternal, omnipotent, omnipresent, omnibenevolent, and omniscient creator and sustainer of the universe, who is pure being.
+Every particle of existence is subject to a world-branch in which it awakens to pure being.
