@@ -1,1 +1,1 @@
-One is subject to the world-branch in which they come to surrender themselves utterly and completely to God, the eternal, omnipotent, omnipresent, omniscient, and omnibenevolent creator and sustainer of the universe, who is pure being.
+One is subject to the timeline in which they awaken to pure being.
