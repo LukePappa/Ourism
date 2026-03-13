@@ -1,1 +1,1 @@
-Your purpose is to surrender yourself utterly and completely to God, who is pure being.
+Your purpose is to surrender yourself utterly and completely to God, the eternal, omnipotent, omnipresent, omniscient, and omnibenevolent creator and sustainer of existence, whose nature is pure being.
