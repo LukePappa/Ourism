@@ -1,1 +1,1 @@
-Adhere to the ultimate principle: be.
+Adhere to the ultimate meditative instruction: be.
