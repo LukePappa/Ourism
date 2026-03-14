@@ -1,1 +1,1 @@
-Adhere to the ultimate meditative instruction: be.
+Be.
