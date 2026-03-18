@@ -1,3 +1,1 @@
-Every particle of existence is subject to a world-branch in which it becomes free of want. One who does not inflict misery upon themselves will reach this state of being.
-
 The highest state of being is that free from self-inflicted misery. 
