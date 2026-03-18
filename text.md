@@ -1,1 +1,1 @@
-The highest state of being is that free from self-inflicted misery. 
+The state in which one is free from self-inflicted misery is called Ennea.
