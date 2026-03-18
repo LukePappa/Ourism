@@ -1,1 +1,1 @@
-Every particle of existence is subject to a world-branch in which it becomes free of want. This state of being is attainable to anyone willing to devote themselves to emotional regulation. 
+Every particle of existence is subject to a world-branch in which it becomes free of want. One who does not inflict misery upon oneself will reach this state of being.
