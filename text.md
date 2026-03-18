@@ -1,1 +1,1 @@
-Every particle of existence is subject to a world-branch in which it comes to find complete liberation in the act of existing itself.
+Every particle of existence is subject to a world-branch in which it finds complete liberation from all forms of attachment.
