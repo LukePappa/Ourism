@@ -1,1 +1,1 @@
-Every particle of existence is subject to a world-branch in which it comes to lose all forms of attachment.
+Every particle of existence is subject to a world-branch in which it becomes free of want.
