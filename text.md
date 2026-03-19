@@ -4,4 +4,4 @@ The state in which one is free from misery is called Ennea. To attain Ennea, fol
 2. Resolve to stop inflicting misery upon yourself.
 2. Identify, challenge, and reframe each miserable thought as it arises.
 
-It is important to note that misery is a particular kind of suffering. It is not remorse, grief, mental illness, or physical pain, which are healthy or things outside of one's control.
+It is important to note that misery is a particular kind of suffering. It is not remorse, grief, mental illness, or physical pain, which are healthy and/or outside of one's control.
