@@ -1,6 +1,6 @@
 The state in which one is free from misery is called Ennea. To attain Ennea, follow these steps:
 
-1. Realize that all misery is self-inflicted. 
+1. Realize that all of your misery is self-inflicted. 
 2. Resolve to stop inflicting misery upon yourself.
 3. When misery arises, remind yourself to stop inflicting misery upon yourself.
 
