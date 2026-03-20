@@ -1,1 +1,1 @@
-Every particle of existence is subject to a world-branch in which it realizes the highest state of being: everlasting freedom from misery. To cultivate this state, be.
+Every particle of existence is subject to a world-branch in which it realizes the highest state of being: everlasting freedom from misery. To obtain this state, be.
