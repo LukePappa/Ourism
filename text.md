@@ -2,4 +2,4 @@ Every particle of existence is subject to a world-branch in which it realizes th
 
 1. Realize that all misery is self-imposed. 
 2. Resolve to stop imposing misery upon yourself. 
-3. Stop imposing misery upon yourself.
+3. When misery arises, resolve it.
