@@ -1,1 +1,1 @@
-To be free of misery, do not impose it upon yourself. 
+Don't impose misery upon yourself. 
