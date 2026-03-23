@@ -1,4 +1,4 @@
-Experience may be interpreted as patterned activity, or physics. Speaking in those terms, the universe comprises spatiotemporally located individuals who range in complexity from singular particles to entire nervous systems. Macroscopic individuals can be likened to waves moving across water, in that they retain their idenity despite changing form and exchanging matter over time. 
+Experience may be reinterpreted as patterned activity, or physics. Speaking in those terms, the universe comprises spatiotemporally located individuals who range in complexity from singular particles to entire nervous systems. Macroscopic individuals can be likened to waves moving across water, in that they retain their idenity despite changing form and exchanging matter over time. 
 
 Given this, sapience is such a rare and significant privilege that personally gaining it defies coincidence. To explain one's circumstances, one must invoke the MWI and posit that each individual subjectively experiences a world-branch in which it attains a "highest state of being". This ultimate form can be envisioned as an everlastingly calm and relaxed awareness in which one simply "is". 
 
