@@ -4,4 +4,4 @@ Given this, sapience is such a rare and significant privilege that personally ga
 
 To obtain "Ennea", one must completely dismantle the integrity of all misery within their mind. That can be accomplished by internalizing this maxim: Don't impose misery upon yourself. One should repeat it to themselves each time they become miserable in response to events, others, or their own shortcomings.
 
-Said another way, every soul is subject to a world in which it attains union with God through purity of heart.
+Said another way, every soul is subject to a world in which it attains union with God.
