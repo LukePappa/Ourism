@@ -1,5 +1,5 @@
-The universe comprises individuals who each subjectively experience a timeline in which they attain the highest state of being: a calm and relaxed awareness. To obtain this state, do not impose misery upon yourself.
-
 Experience may be interpreted as patterned activity, or physics. Speaking in those terms, the universe comprises spatiotemporally located individuals who range in complexity from individual particles to entire nervous systems. Individuals can be likened to the waves on an ocean in that each one retains its identity despite slowly changing form and exchanging matter over time. 
 
-Given this, sapience is such a rare and significant privilege that personally gaining it defies coincidence. To explain one's circumstances, one must invoke the MWI and posit that each individual subjectively perceives a world-branch in which it attains a highest state of being. 
+Given this, sapience is such a rare and significant privilege that personally gaining it defies coincidence. To explain one's circumstances, one must invoke the MWI and posit that each individual subjectively experiences a world-branch in which it attains a "highest state of being". This may be formulated as complete freedom from misery.
+
+To obtain such a state, one must dismantle the integrity of all misery within their mind. This can be accomplished by internalizing this maxim: Don't impose misery upon yourself.
