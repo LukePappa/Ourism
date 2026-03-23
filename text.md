@@ -3,3 +3,5 @@ Experience may be reinterpreted as patterned activity, or physics. Speaking in t
 Given this, sapience is such a rare and significant privilege that personally gaining it defies coincidence. To explain one's circumstances, one must invoke the MWI and posit that each individual subjectively experiences a world-branch in which it attains a "highest state of being". This ultimate state can be envisioned as an everlastingly calm and relaxed awareness in which one simply "is". 
 
 To obtain "Ennea", one must completely dismantle the integrity of all misery within their mind. That can be accomplished by internalizing this maxim: Don't impose misery upon yourself. One should repeat it to themselves each time they become miserable in response to events, others, or their own shortcomings.
+
+Said another way, every soul is subject to a world in which it attains union with God.
