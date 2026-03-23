@@ -1,1 +1,1 @@
-One's purpose is to be.
+Don't impose misery upon yourself.
