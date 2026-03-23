@@ -1,1 +1,1 @@
-Your purpose is to be one with existence.
+One's purpose is to be.
