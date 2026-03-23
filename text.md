@@ -1,1 +1,1 @@
-Every particle of existence subjectively experiences a world-branch in which it attains everlasting union with God, the eternal and infinite creator and sustainer of the universe, who is pure being. To know Him, be.
+The universe comprises individuals who each subjectively experience a timeline in which they attain the highest state of being: a calm and relaxed awareness. To obtain this state, do not impose misery upon yourself.
