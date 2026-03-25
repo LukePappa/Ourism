@@ -1,5 +1,1 @@
-Experience may be reinterpreted as patterned activity, or physics. Speaking in those terms, the universe comprises spatiotemporally located individuals who range in complexity from singular particles to entire nervous systems. Macroscopic individuals can be likened to waves moving across water, in that they retain their identity despite changing form and exchanging matter over time. 
-
-Given this, sapience is such a rare and significant privilege that personally gaining it defies coincidence. To explain one's circumstances, one must invoke the MWI and posit that each individual subjectively experiences a world-branch in which it attains a "highest state of being". This ultimate state can be envisioned as an everlastingly calm and relaxed awareness in which one simply "is". 
-
-To obtain "Ennea", one must completely dismantle the integrity of all misery within their mind. That can be accomplished by internalizing this maxim: Don't impose misery upon yourself. One should repeat it to themselves each time they become miserable in response to events, others, or their own shortcomings.
+Every particle of existence is subject to a world-branch in which it comes to surrender itself utterly and completely to God, the eternal, omnipotent, omnipresent, omnibenevolent, and omniscient creator and sustainer of the universe, who is divine love.
