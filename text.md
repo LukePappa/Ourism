@@ -1,1 +1,1 @@
-Every particle of existence is subject to a world-branch in which it attains a calm and relaxed awareness of being.
+Every particle of existence is subject to a world-branch in which it attains an e everlastingly calm and relaxed awareness, or Ennea. To obtain Ennea, one must completely dismantle the integrity of all misery within their mind. That can be accomplished by internalizing this maxim: Don't impose misery upon yourself. One should repeat it to themselves each time they become miserable in response to events, others, or their own shortcomings.
