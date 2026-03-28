@@ -1,1 +1,1 @@
-Every particle of existence is subject to a world-banch in which it comes to surrender itself utterly and completely to God, the eternal, omnipotent, omnipresent, omnibenevolent, and omniscient creator and sustainer of the universe, who is divine love.
+Every particle of existence is subject to a world-banch in which it attains an everlastingly calm and relaxed awareness. 
