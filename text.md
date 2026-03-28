@@ -2,4 +2,4 @@ Experience may be interpreted as patterned activity, or physics. Speaking in tho
 
 Given this, sapience is such a rare and significant privilege that personally gaining it defies coincidence. To explain one's circumstances, one must invoke the MWI and posit that each individual subjectively experiences a world-branch in which it attains a "highest state of being". This ultimate form can be envisioned as a calm and relaxed awareness in which one simply "is".
 
-To obtain "Ennea", one must dismantle the integrity of all misery within their mind. That can be accomplished by internalizing this maxim: Don't impose misery upon yourself. One may repeat it to themselves each time they become miserable in response to external events, the actions of others, or their own circumstances.
+To obtain "Ennea", one must dismantle the integrity of all misery within their mind. That can be accomplished by internalizing this maxim: Don't impose misery upon yourself. One should repeat it to themselves each time they become miserable in response to external events, the actions of others, or their own circumstances.
