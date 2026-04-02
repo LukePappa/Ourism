@@ -1,1 +1,1 @@
-Be.
+The highest state of being is calm and relaxed awareness. 
