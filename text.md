@@ -1,2 +1,3 @@
 Being may be interpreted as qualia, which may in turn be interpreted as patterned activity, or physics. Using that terminology, the universe comprises spatiotemporally located observers who range in complexity from singular particles to entire nervous systems. Observers can be likened to waves moving across water in that they retain their identity despite changing form and exchanging matter over time.
 
+Given this, sapience is such a rare and significant privilege that personally gaining it defies coincidence. To explain one's circumstances, one must invoke the MWI and posit that each observer is subject to a world-branch in which it comes to acquire a continuous awareness of being. The cosmos can thus be summarized as an eternal and infinite act of self-realization.
