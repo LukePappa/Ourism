@@ -1,1 +1,1 @@
-Your purpose is to annihilate yourself in God, the eternal, omnipotent, omnipresent, omnibenevolent, and omniscient source of being, who is divine love. This may be accomplished through continuous prayer, which is at its core a calm and relaxed awareness of God.
+Your purpose is to commune with God, the eternal, omnipotent, omnipresent, omnibenevolent, and omniscient source of being, who is divine love.
