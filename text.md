@@ -1,1 +1,1 @@
-Everything present at the instant of creation is subject to a timeline in which it comes to know the ultimate nature of reality, the Good.
+Everything present at the instant of creation is subject to a timeline in which it comes to recognize the good as the ultimate nature of existence. 
