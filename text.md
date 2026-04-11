@@ -1,1 +1,1 @@
-Everything present at the instant of creation is subject to a timeline in which it eventually attains everlasting union with the ground of being, the Good.
+Everything present at the instant of creation is subject to a timeline in which it attains everlasting union with the ground of being, the Good.
