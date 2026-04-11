@@ -1,1 +1,1 @@
-The cosmos may be understood as an infinite and eternal act of self-realization, where everything present at the instant of creation is subject to a timeline in which it comes to recognize goodness itself as the nature of reality.
+The cosmos may be understood as an infinite and eternal act of self-realization, where everything present at the instant of creation is subject to a timeline in which it comes to recognize goodness itself as the nature of reality. To cultivate the clarity of mind necessary to fulfill your purpose, don't impose misery upon yourself.
