@@ -1,1 +1,1 @@
-Everything present at the instant of creation is subject to a timeline in which it comes to recognize the good as the ultimate nature of existence. In this way the cosmos may be understood as an infinite and eternal act of self-realization.
+The cosmos may be understood as an infinite and eternal act of self-realization, in which everything present at the instant of creation is subject to a timeline wherein it comes to recognize the good as the ultimate nature of existence.
