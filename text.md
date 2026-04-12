@@ -1,1 +1,1 @@
-Everything present at the instant of creation is subject to a timeline in which it comes to see goodness itself as the ultimate nature of existence. To cultivate the clarity of mind necessary to fulfill your purpose, don't inflict misery upon yourself.
+Everything present at the instant of creation is subject to a timeline in which it comes to know goodness itself as the ultimate nature of existence. To cultivate the clarity of mind necessary to fulfill your purpose, don't inflict misery upon yourself.
