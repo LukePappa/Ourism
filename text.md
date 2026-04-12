@@ -1,1 +1,1 @@
-Everything present at the instant of creation is subject to a world-branch in which it comes to know goodness itself as the only reality. To cultivate the clarity of mind necessary to realize your purpose, stop inflicting misery upon yourself.
+Everything present at the instant of creation is subject to a world-branch in which it comes to know goodness itself as the only reality. To cultivate the clarity of mind necessary to fulfill your purpose, stop inflicting misery upon yourself.
