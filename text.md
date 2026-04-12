@@ -1,1 +1,1 @@
-Everything present at the instant of creation subjectively experiences a world-branch in which it comes to see the Good as the ultimate nature of being. To cultivate the clarity of mind necessary to realize your purpose, don't inflict misery upon yourself.
+Everything present at the instant of creation is subject to a world-branch in which it comes to see goodness itself as the ultimate nature of reality. To cultivate the clarity of mind necessary to fulfill your purpose, don't inflict misery upon yourself.
