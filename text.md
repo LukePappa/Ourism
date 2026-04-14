@@ -1,3 +1,3 @@
 Being may be interpreted as qualia, which may in turn be interpreted as patterned activity, or physics. Using that terminology, the universe comprises spatiotemporally located individuals who range in complexity from singular particles to entire nervous systems. Given this, sapience is such a rare and significant privilege that personally gaining it defies coincidence. 
 
-To explain one's circumstances, one must invoke the MWI and posit that each individual present at the instant of the Big Bang subjectively experiences a world-branch in which it reaches a "highest state", which is simply a calm and relaxed awareness, or "Ennea".
+To explain one's circumstances, one must invoke the MWI and posit that each individual present at the instant of creation subjectively experiences a world-branch in which it comes to acquire a continuous awareness of being. In this way, the cosmos may be understood as an infinite and eternal act of self-realization.
