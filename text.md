@@ -1,1 +1,1 @@
-Everything present at the instant of creation is subject to a world in which it comes to know God, who is the divine love that underlies all things. To cultivate the clarity of mind necessary to fulfill your purpose, dedicate yourself to disciplined emotional regulation.
+One's purpose is to grow in intimacy with God, the eternal, omnipotent, omnipresent, omnibenevolent, and omniscient creator and sustainer of the universe, who is divine love.
