@@ -1,1 +1,1 @@
-One's purpose is to grow in intimacy with God, the eternal, omnipotent, omnipresent, omnibenevolent, and omniscient creator and sustainer of the universe, who is divine love.
+Everything present at the instant of creation is subject to a world in which it continually grows in intimacy with God, the eternal, omnipotent, omnipresent, omnibenevolent, and omniscient creator and sustainer of the universe, who is divine love.
