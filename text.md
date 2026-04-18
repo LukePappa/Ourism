@@ -1,1 +1,1 @@
-Your purpose is to grow in intimacy with God, the  divine love that underlies everything.
+Your purpose is to grow in intimacy with the divine love that underlies everything.
