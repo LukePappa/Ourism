@@ -1,1 +1,1 @@
-Everything present at the instant of creation is subject to a world in which it continually grows in intimacy with the divine love that underlies all things.
+All things present at the instant of creation are subject to a world in which they personally grow in intimacy with the divine love that underlies everything.
