@@ -1,1 +1,1 @@
-Everything present at the instant of creation is subject to a world in which it comes to know God, the divine love that underlies all things.
+Everything present at the instant of creation is subject to a world in which it comes to know God, the divine love that underlies all things. To cultivate the clarity of mind necessary to fulfill your purpose, dedicate yourself to disciplined emotional regulation.
