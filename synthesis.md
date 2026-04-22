@@ -1,0 +1,1 @@
+Our purpose is to be one with God, who is divine love, the only reality.
