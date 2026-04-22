@@ -1,1 +1,1 @@
-Our purpose is to be one with God, who is divine love, the only reality.
+Everything present at the instant of creation is subject to a world in which it comes to recognize divine love as the only reality. To cultivate the clarity of mind necessary to fulfill your purpose, stop inflicting misery upon yourself in response to external events, the actions of others, and personal shortcomings.
