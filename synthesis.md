@@ -1,1 +1,1 @@
-Everything present at the instant of creation is subject to a world in which it comes to recognize divine love as the only reality. The clarity of mind necessary for Ennea may only be attained through disciplined emotional regulation.
+Everything present at the instant of creation is subject to a world in which it comes to recognize divine love as the only reality. The clarity of mind necessary for Ennea may only be attained through the elimination of self-imposed misery.
