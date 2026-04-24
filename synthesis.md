@@ -1,1 +1,1 @@
-Everything present at the instant of creation is subject to a world in which it comes to recognize divine love as the only reality. To obtain Ennea, learn to regulate your emotions properly. 
+Everything present at the instant of creation is subject to a world in which it comes to recognize divine love as the only reality. To achieve the clarity of mind necessary to fulfill your purpose, learn to regulate your emotions properly. 
