@@ -1,1 +1,1 @@
-Everything present at the instant of creation is subject to a world in which it comes to recognize divine love as the only reality. To attain Ennea, you must take complete ownership of your misery, which is the root of your distorted perception.
+Everything present at the instant of creation is subject to a world in which it comes to recognize divine love as the only reality. Ennea may be attained only after taking complete ownership of your misery, which is the root of your distorted perception.
