@@ -1,1 +1,1 @@
-Everything present at the instant of creation is subject to a world in which it comes to recognize divine love as the only reality. To obtain Ennea, take total accountability towards your misery, which is the root of your distorted perception of reality. 
+Everything present at the instant of creation is subject to a world in which it comes to recognize divine love as the only reality. To obtain Ennea, focus on regulating your emotions. 
