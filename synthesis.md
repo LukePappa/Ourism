@@ -1,1 +1,1 @@
-Everything present at the instant of creation is subject to a world in which it comes to recognize divine love as the only reality. Freedom from delusion may be obtained through the cessation of self-imposed misery.
+All things present at the instant of creation are subject to a world in which they personally come to recognize divine love as the only reality. Freedom from delusion may be obtained through emotional regulation.
