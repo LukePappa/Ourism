@@ -1,1 +1,1 @@
-Everything present at the instant of creation is subject to a world in which it comes to recognize divine love as the only reality.
+Immediate reality may be articulated as qualia, and qualia as physics. The nature of reality is divine love, though one's perception of it may be distorted by self-imposed misery. Everything present at the instant of creation is subject to a world in which it comes to recognize divine love as the only reality. 
