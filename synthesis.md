@@ -1,1 +1,1 @@
-Everything present at the instant of creation is subject to a world in which it comes to recognize divine love as the only reality. It affords one no gain to impose suffering upon oneself, yet that is the nature of our misery, the root of our distorted perception.
+Everything present at the instant of creation is subject to a world in which it comes to recognize divine love as the only reality. It affords one no gain to impose suffering upon oneself, yet that is the nature of our misery, the root of our distorted perception of reality.
