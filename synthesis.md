@@ -1,1 +1,1 @@
-Reality may be abstracted as qualia, qualia as physics, and physics as mathematics. Everything present at the inception of the universe finds itself within a world-branch wherein it becomes aware of reality, thereby attaining self-realization.
+Reality is utterly transcendent, though it may be abstracted as qualia, qualia as physics, and physics as mathematics. Everything present at the inception of the universe finds itself within a world-branch wherein it becomes aware of reality, thereby attaining self-realization.
