@@ -1,1 +1,1 @@
-Reality is utterly transcendent, though it may be articulated as qualia, and qualia as physics. Everything present at the inception of the universe finds itself within a world-branch wherein it gains awareness of its nature.
+Reality is utterly transcendent, though it may be articulated as qualia, and qualia as physics. Everything present at the inception of the universe finds itself within a world-branch wherein it gains awareness of its nature. Thus, our cosmos may be understood as an infinite and eternal act of self-realization.
