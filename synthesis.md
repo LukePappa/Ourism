@@ -1,1 +1,1 @@
-Everything present at the instant of the Big Bang finds itself within a world-branch wherein it becomes increasingly conscious of direct, transcendent reality.
+Everything present at the instant of creation finds itself within a world-branch wherein it becomes increasingly conscious of direct, transcendent reality.
