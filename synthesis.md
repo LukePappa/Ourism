@@ -1,1 +1,1 @@
-Reality may be abstracted as qualia, qualia as physics, and physics as mathematics. Everything present at the instant of creation finds itself within a world-branch wherein it becomes conscious of it. In this way, the cosmos may be understood as an infinite act of self-realization.
+Everything present at the inception of the universe finds itself within a world-branch wherein it becomes conscious of reality, which may be abstracted as qualia, qualia as physics, and physics as mathematics. In this way, the cosmos may be understood as an infinite act of self-realization.
