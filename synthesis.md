@@ -1,1 +1,1 @@
-Everything present at the inception of the universe finds itself within a world-branch wherein it grows in awareness of direct, transcendent reality, which may be abstracted as qualia, qualia as physics, and physics as mathematics. Thus, our cosmos may be understood as an infinite and eternal act of self-realization.
+Everything present at the inception of the universe finds itself within a world-branch wherein it grows in awareness of direct, transcendent reality, which may be abstracted as qualia, qualia as physics, and physics as mathematics.
