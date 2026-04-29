@@ -1,1 +1,1 @@
-Everything present at the inception of the universe finds itself within a world-branch wherein it grows in awareness of direct, transcendent reality.
+Everything present at the inception of the universe finds itself within a world-branch wherein it grows in awareness of direct, transcendent reality. Thus, existence may be seen as an infinite and eternal act of self-realization.
