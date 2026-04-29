@@ -1,1 +1,1 @@
-In an infinite and eternal act of self-realization, all things present at the instant of the Big Bang find themselves within world-branchs wherein they grow continually in awareness of direct, transcendent reality.
+In an infinite and eternal act of self-realization, all things present at the instant of the Big Bang find themselves within world-branches wherein they grow continually in awareness of direct, transcendent reality.
