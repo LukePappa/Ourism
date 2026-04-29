@@ -1,1 +1,1 @@
-Everything present at the instant of the Big Bang finds itself within a world-branch wherein it becomes increasingly conscious of direct, transcendent reality, which may be abstracted as qualia, qualia as physics, and physics as mathematics.
+Everything present at the instant of the Big Bang finds itself within a world-branch wherein it becomes increasingly conscious of direct, transcendent reality.
