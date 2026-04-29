@@ -1,1 +1,1 @@
-Everything present at the instant of the Big Bang finds itself within a world-branch wherein it becomes conscious of direct, transcendent reality.
+Everything present at the instant of the Big Bang finds itself within a world-branch wherein it attains everlasting awareness of direct, transcendent reality.
