@@ -1,1 +1,1 @@
-You are direct, transcendent reality.
+What you are transcends everything.
