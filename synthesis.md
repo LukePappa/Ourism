@@ -1,1 +1,1 @@
-What you are transcends everything.
+The cosmos is an infinite and eternal act of self-realization, where everything present at the instant of creation finds itself within a world-branch wherein it becomes increasingly conscious of direct, transcendent reality.
