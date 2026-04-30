@@ -1,1 +1,1 @@
-The cosmos may be understood as an infinite and eternal act of self-realization, where everything present at the inception of the universe perceives a world-branch in which it grows in awareness of direct, transcendent reality.
+The cosmos may be understood as an infinite and eternal act of self-realization, where everything present at the inception of the universe perceives a world-branch in which it grows in awareness of direct, transcendent reality. This reality may be abstracted as qualia, qualia as physics, and physics as mathematics.
