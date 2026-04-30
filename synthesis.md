@@ -1,1 +1,1 @@
-One's purpose is to become increasingly conscious of one's utterly transcendent nature.
+The self transcends everything.
