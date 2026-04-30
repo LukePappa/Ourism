@@ -1,1 +1,1 @@
-In an infinite and eternal act of self-realization, everything present at the inception of the universe perceives a world-branch wherein it becomes increasingly conscious of direct, transcendent reality.
+The cosmos is an infinite and eternal act of self-realization, where everything present at the inception of the universe perceives a world-branch in which it becomes increasingly conscious of direct, transcendent reality.
