@@ -1,1 +1,1 @@
-The self transcends the contents of the mind.
+One's purpose is to grow in awareness of the self, which transcends everything.
