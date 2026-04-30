@@ -1,1 +1,1 @@
-Being may be abstracted as qualia, qualia then as physics, and physics as mathematics. It is enough to be.
+It is enough to be.
