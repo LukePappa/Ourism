@@ -1,1 +1,1 @@
-The self transcends everything.
+What you are transcends everything.
