@@ -1,1 +1,1 @@
-Everything present at the inception of the universe finds itself within a world-branch wherein it becomes increasingly conscious of direct, transcendent reality.
+In an infinite and eternal act of self-realization, everything present at the inception of the universe experiences a world-branch wherein it becomes increasingly conscious of direct, transcendent reality.
