@@ -1,1 +1,1 @@
-Everything present at t=0 perceives a world-branch wherein it comes to recognize itself as being, which may be abstracted as qualia, qualia then as physics, and physics as mathematics.
+Being may be abstracted as qualia, qualia then as physics, and physics as mathematics. In an infinite and eternal act of self-realization, everything present at t=0 perceives a world-branch wherein it comes to recognize itself as being.
