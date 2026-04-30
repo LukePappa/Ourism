@@ -1,1 +1,1 @@
-Reality may be abstracted as qualia, qualia as physics, and physics as mathematics.
+What you are transcends everything.
