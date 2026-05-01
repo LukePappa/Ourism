@@ -1,1 +1,1 @@
-It is enough to live, for a time.
+Everything present at the inception of the universe perceives a world-branch wherein it attains everlasting inner peace. To achieve this peace, one must realize that it is enough to be.
