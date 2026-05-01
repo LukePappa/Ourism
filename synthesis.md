@@ -1,1 +1,1 @@
-The universe may be understood as an infinite and eternal act of self-realization, where everything present at t=0 perceives a world-branch wherein it eventually obtains a total awareness of being. Being may be abstracted as qualia, qualia then as physics, and physics as mathematics.
+Being may be abstracted as qualia, qualia then as physics, and physics as mathematics.
