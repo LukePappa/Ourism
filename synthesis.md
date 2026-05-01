@@ -1,1 +1,1 @@
-It is enough to be.
+Being is enough.
