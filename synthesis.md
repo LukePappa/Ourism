@@ -1,1 +1,1 @@
-Everything present at the inception of the universe perceives a world-branch wherein it finds everlasting peace.
+Everything present at the inception of the universe perceives a world-branch wherein it finds everlasting peace through the recognition that what they are transcends everything. Thus the cosmos may be understood as an infinite and eternal act of self-realization.
