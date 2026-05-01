@@ -1,1 +1,1 @@
-To be is enough.
+Everything present at the inception of the universe perceives a world-branch wherein it attains everlasting inner peace. Such a state may be cultivated through emotional regulation.
