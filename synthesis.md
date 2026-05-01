@@ -1,1 +1,1 @@
-Everything present at the inception of the universe perceives a world-branch wherein it finds everlasting peace. Such a state may be cultivated through emotional regulation.
+Everything present at the inception of the universe perceives a world-branch wherein it finds everlasting peace.
