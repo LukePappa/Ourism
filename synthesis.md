@@ -1,1 +1,1 @@
-It is enough to live, for a time.
+It is enough to be.
