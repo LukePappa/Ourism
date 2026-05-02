@@ -1,1 +1,1 @@
-Being may be thought of as qualia, qualia then as physics, and physics as mathematics.
+The universe is an infinite and eternal act of self-realization, where everything perceives a world-branch wherein it becomes increasingly conscious of being. Being may be thought of as qualia, qualia then as physics, and physics as mathematics.
