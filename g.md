@@ -1,0 +1,1 @@
+Everything perceives a world-branch wherein it grows in intimacy with God, the eternal, omnipotent, omnipresent, omnibenevolent, and omniscient creator of the universe, who is divine love.
