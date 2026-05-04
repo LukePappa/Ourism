@@ -1,1 +1,1 @@
-The universe is an infinite and eternal act of self-realization, where everything present at t=0 perceives a world-branch wherein it becomes increasingly conscious of being. Being may be abstracted as qualia, qualia then as physics, and physics as mathematics.
+The universe is an infinite and eternal act of self-realization, where everything present at t=0 perceives a world-branch wherein it comes to recognize divine love as the only reality. One's perception of reality may be distorted by miserable thoughts, which must be dealt with through emotional regulation.
