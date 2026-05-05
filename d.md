@@ -1,1 +1,0 @@
-The universe is an infinite and eternal act of self-realization, where everything present at t=0 perceives a world-branch wherein it comes to recognize divine love as the only reality. One's perception of reality may be distorted by miserable thoughts, which must be dealt with through emotional regulation.
