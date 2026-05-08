@@ -1,0 +1,1 @@
+Your purpose is to grow in intimacy with God, the eternal, omnipotent, omnipresent, omnibenevolent, and omniscient creator and sustainer of the universe, who is divine love. This may be accomplished through disciplined emotional regulation.
