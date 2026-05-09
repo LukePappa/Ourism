@@ -1,1 +1,1 @@
-Live by this meditative instruction: be.
+Obey this meditative instruction: be.
