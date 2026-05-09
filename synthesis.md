@@ -1,1 +1,1 @@
-This may be thought of as qualia, qualia then as physics, physics as mathematics, and mathematics as logic.
+This may be conceptualized as qualia, qualia then as physics, physics as mathematics, and mathematics as logic.
