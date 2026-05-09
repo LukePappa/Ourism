@@ -1,1 +1,1 @@
-This may be articulated as qualia, qualia then as physics, physics as mathematics, and mathematics as logic.
+Direct reality may be articulated as qualia, qualia then as physics, physics as mathematics, and mathematics as logic.
