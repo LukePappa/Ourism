@@ -1,1 +1,1 @@
-The universe may be understood as an infinite and eternal act of self-realization, where everything present at its inception perceives a world wherein it grows in awareness of itself.
+The universe may be understood as an infinite and eternal act of self-realization, where everything present at its inception perceives a world in which it grows in awareness of itself.
