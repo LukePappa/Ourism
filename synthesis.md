@@ -1,1 +1,1 @@
-To live in accordance with your purpose, obey this meditative instruction: be.
+Obey this meditative instruction: be.
