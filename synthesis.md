@@ -1,1 +1,1 @@
-The universe may be understood as an infinite and eternal act of self-realization, where everything present at its inception perceives a world in which it comes to recognize itself as "this", which may be abstracted as qualia, qualia then as physics, physics as mathematics, and mathematics as logic.
+The universe may be understood as an infinite and eternal act of realization, where everything present at its inception perceives a world in which it comes to grow in awareness of "this".
