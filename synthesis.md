@@ -1,1 +1,1 @@
-Obey this meditative instruction: be.
+Be.
