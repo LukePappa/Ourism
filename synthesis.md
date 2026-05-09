@@ -1,1 +1,1 @@
-The self transcends, grounds, and is immediate reality, which may be articulated as qualia, qualia then as physics, physics as mathematics, and mathematics as logic.
+The self transcends, grounds, and is immediate reality, which may be articulated as qualia, qualia then as physics, physics as mathematics, and mathematics as logic. The universe may be understood as an infinite and eternal act of self-realization, where everything present at its inception perceives a world wherein it becomes conscious of its nature.
