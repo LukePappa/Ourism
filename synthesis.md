@@ -1,1 +1,1 @@
-Be.
+The universe may be understood as an infinite and eternal act of self-realization, where everything present at its inception perceives a timeline in which it becomes increasingly conscious of being. Being may be abstracted as qualia, qualia then as physics, physics as mathematics, and mathematics as logic. To live in accordance with your purpose, always bring your attention towards being.
