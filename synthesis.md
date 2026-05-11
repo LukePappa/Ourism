@@ -1,1 +1,1 @@
-Everything present at the inception of existence is subject to a world-branch wherein it comes to recognize divine love as the only reality. One's perception of reality may be distorted by the misery they impose upon themselves, and so 
+Everything present at the inception of existence is subject to a world-branch wherein it comes to recognize divine love as the only reality. One's perception of reality may be distorted by the misery they impose upon themselves, and so in order to fulfill their purpose, one must seek to not harm themselves with miserable thoughts.
