@@ -1,1 +1,1 @@
-Everything present at the inception of the universe is subject to a world-branch wherein it comes to recognize divine love as the only reality. Thus, to live in accordance with your purpose, strive to see this reality at all times.
+Everything present at the inception of the universe is subject to a world-branch wherein it comes to recognize divine love as the only reality. To live in accordance with your purpose, try to see divine love as the only reality.
