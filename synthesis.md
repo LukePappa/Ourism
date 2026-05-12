@@ -1,1 +1,1 @@
-Everything present at the inception of existence is subject to a world-branch wherein it comes to recognize divine love as the only reality. Misery is a distorted perception of reality.
+Everything present at the inception of existence is subject to a world-branch wherein it comes to recognize divine love as the only reality. One's distorted perception of reality is the nature of one's misery.
