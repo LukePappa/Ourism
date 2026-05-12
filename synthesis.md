@@ -1,1 +1,1 @@
-Everything present at the inception of the universe is subject to a world-branch wherein it comes to recognize divine love as the only reality. A distorted perception of reality is the nature of misery.
+Everything present at the inception of the universe is subject to a world-branch wherein it comes to recognize divine love as the only reality. Union with God is thus 
