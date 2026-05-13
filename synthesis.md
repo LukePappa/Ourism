@@ -1,1 +1,1 @@
-The self transcends, grounds, and is immediate reality, which may be articulated as qualia, qualia then as physics, physics as mathematics, and mathematics as logic.
+Everything present at the inception of the universe is subject to a world-branch wherein it comes to be. Being may be articulated as qualia, qualia then as physics, physics as mathematics, and mathematics as logic.
