@@ -1,1 +1,1 @@
-The universe is an infinite and eternal act of self-realization, where everything present at its inception is subject to a world-branch wherein it becomes increasingly conscious of direct reality, which may be abstracted as qualia, qualia then as physics, physics as mathematics, and mathematics as logic.
+Everything present at the inception of the universe is subject to a world-branch wherein it becomes increasingly conscious of direct reality, which may be abstracted as qualia, qualia then as physics, physics as mathematics, and mathematics as logic.
