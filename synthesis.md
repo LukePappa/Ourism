@@ -1,1 +1,1 @@
-This.
+The universe is an infinite and eternal act of self-realization, where everything at t=0 perceives a world-branch in which it becomes increasingly conscious of direct reality, which may be articulated as qualia, qualia then as physics, physics as mathematics, and mathematics as logic.
