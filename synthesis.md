@@ -1,1 +1,1 @@
-Everything present at the inception of the universe perceives a world-branch wherein it comes to recognize divine love as the only reality. To know only God 
+Everything present at the inception of the universe perceives a world-branch wherein it comes to recognize divine love as the only reality.
