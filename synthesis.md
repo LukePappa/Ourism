@@ -1,1 +1,1 @@
-Everything present at t=0 is subject to a world-branch wherein it becomes increasingly conscious of its existence, which may be articulated as qualia, qualia then as physics, physics as mathematics, and mathematics as logic.
+Everything present at t=0 is subject to a world-branch wherein it becomes increasingly aware of its existence, which may be articulated as qualia, qualia then as physics, physics as mathematics, and mathematics as logic.
