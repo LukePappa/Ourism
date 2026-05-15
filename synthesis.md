@@ -1,1 +1,1 @@
-Everything present at the inception of the universe perceives a world-branch wherein it comes to recognize Divine Love as the only reality. The nature of one's distorted perception of reality is misery, which may be dealt with through disciplined emotional regulation.
+Everything present at the inception of the universe perceives a world-branch wherein it comes to recognize Divine Love as the only reality. Misery distorts one's perception of reality and so must be dealt with through disciplined emotional regulation.
