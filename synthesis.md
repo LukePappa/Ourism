@@ -1,1 +1,1 @@
-Everything present at the inception of the universe perceives a world-branch wherein it comes to recognize Divine Love as the only reality. God may become known to one who does not inflict misery upon themselves, whether in response to external events, the actions of others, or personal shortcomings.
+Everything present at the inception of the universe perceives a world-branch wherein it comes to recognize Divine Love as the only reality. God may become apparent to a heart which the intellect knows that nothing need trouble.
