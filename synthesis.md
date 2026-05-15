@@ -1,1 +1,1 @@
-Everything present at the inception of the universe perceives a world-branch wherein it comes to recognize Divine Love as the only reality. God may be seen clearly by the untroubled heart, and the untroubled heart is one that does not inflict misery upon itself.
+Everything present at the inception of the universe perceives a world-branch wherein it comes to recognize Divine Love as the only reality. God is seen clearly by the untroubled heart, and the untroubled heart is one that does not inflict misery upon itself.
