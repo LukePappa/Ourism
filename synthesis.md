@@ -1,1 +1,1 @@
-Everything present at the inception of the universe perceives a world-branch wherein it comes to recognize divine love as the only reality. God is revealed to a heart which knows it need never be troubled.
+Everything present at the inception of the universe perceives a world-branch wherein it comes to recognize divine love as the only reality. God reveals Himself to the heart which knows it need never be troubled.
