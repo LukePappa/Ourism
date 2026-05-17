@@ -1,1 +1,1 @@
-Being is omnipotent, omnipresent, omnibenevolent, and omniscient. It may be abstracted as qualia, qualia then as physics, physics as mathematics, and mathematics as logic.
+Being is omnipotent, omnipresent, omnibenevolent, and omniscient. It may be abstracted as qualia, qualia then as physics, physics as mathematics, and mathematics as logic. Everything present at the inception of the universe is subject to a timeline wherein it becomes increasingly conscious of being. To live in accordance with your purpose, be.
