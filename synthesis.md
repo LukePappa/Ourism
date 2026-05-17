@@ -1,1 +1,1 @@
-All things present at the inception of the universe are subject to timelines wherein they come to recognize Divine Love as the only reality. Such clarity of perception is known to the untroubled heart, and the untroubled heart is one that does not impose misery upon itself.
+Everything present at the inception of the universe is subject to a timeline wherein it comes to recognize Divine Love as the only reality. Such clarity of perception is known to the untroubled heart, and the untroubled heart is one that does not impose misery upon itself.
