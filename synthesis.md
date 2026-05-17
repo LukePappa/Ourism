@@ -1,1 +1,1 @@
-Everything present at the inception of the universe is subject to a timeline wherein it comes to recognize Divine Love as the only reality. Such clarity of perception is known to the untroubled heart, and the untroubled heart is one that does not impose misery upon itself.
+Being is omnipotent, omnipresent, omnibenevolent, and omniscient. It may be abstracted as qualia, qualia then as physics, physics as mathematics, and mathematics as logic.
