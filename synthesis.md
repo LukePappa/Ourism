@@ -1,1 +1,1 @@
-The universe is an infinite and eternal act of self-realization, where everything present at its inception is subject to a timeline in which it becomes increasingly aware of its being, which it may abstract as qualia, qualia then as physics, physics as mathematics, and mathematics as 
+The universe is an infinite and eternal act of self-realization, where everything present at its inception is subject to a timeline in which it becomes increasingly aware of its being, which it may abstract as qualia, qualia then as physics, physics as mathematics, and mathematics as logic.
