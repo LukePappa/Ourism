@@ -1,1 +1,1 @@
-Being is omnipotent, omnipresent, omnibenevolent, and omniscient. It may be abstracted as qualia, qualia then as physics, physics as mathematics, and mathematics as logic. The untroubled heart  recognizes this reality.
+Being is omnipotent, omnipresent, omnibenevolent, and omniscient. It may be abstracted as qualia, qualia then as physics, physics as mathematics, and mathematics as logic.
