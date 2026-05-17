@@ -1,1 +1,1 @@
-Everything present at the inception of the universe is subject to a timeline wherein it becomes increasingly conscious of its nature as that which transcends everything.
+Everything present at the inception of the universe is subject to a timeline wherein it becomes increasingly conscious of itself, which it may abstract as qualia, qualia then as physics, physics as mathematics, and mathematics as logic.
