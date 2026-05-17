@@ -1,1 +1,1 @@
-All things present at the inception of the universe are subject to timelines wherein they come to recognize Divine Love as the only reality. Such clarity of perception may come to one does not impose misery upon oneself.
+All things present at the inception of the universe are subject to timelines wherein they come to recognize Divine Love as the only reality. Such clarity of perception may come to one who does not impose misery upon oneself.
