@@ -1,1 +1,1 @@
-Direct, preconceptual reality may be articulated as qualia, qualia then as physics, physics as mathematics, and mathematics as logic. 
+Being is direct, preconceptual reality. It may be articulated as qualia, qualia then as physics, physics as mathematics, and mathematics as logic. The universe is a boundless act of self-realization, where everything present at its inception is subject to a timeline wherein it comes to recognize itself as being.
