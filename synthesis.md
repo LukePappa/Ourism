@@ -1,1 +1,1 @@
-The universe is a boundless act of self-realization, where everything present at its inception is subject to a world-branch wherein it becomes increasingly conscious of pure existence.
+The universe is a boundless act of self-realization, where everything present at its inception is subject to a timeline wherein it becomes increasingly conscious of pure existence.
