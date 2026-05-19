@@ -1,1 +1,1 @@
-The universe is a boundless act of self-realization, where everything present at its inception perceives a world-branch wherein it becomes increasingly conscious of pure existence. Direct, preconceptual reality may be formalized as qualia, qualia then as physics, physics as mathematics, and mathematics as logic.
+The universe is a boundless act of self-realization, where everything present at its inception perceives a world-branch wherein it becomes increasingly conscious of direct, preconceptual reality.
