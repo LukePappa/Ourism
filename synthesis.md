@@ -1,1 +1,1 @@
-The universe is a boundless act of self-realization, where everything present at its inception perceives a world-branch in which it becomes increasingly conscious of direct reality.
+Everything present at the inception of the universe perceives a timeline wherein it comes to recognize divine love as the only reality. Such clarity of perception is known to the untroubled heart, and the untroubled heart is one that does not impose misery upon itself.
