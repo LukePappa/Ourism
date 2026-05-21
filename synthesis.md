@@ -1,1 +1,1 @@
-The universe is an unbounded act of self-realization, where everything present at its inception perceives a world-branch in which it becomes increasingly conscious of being. Being may formalized as qualia, qualia then as physics, physics as mathematics, and mathematics as logic. 
+The universe is an unbounded act of self-realization, where everything present at its inception perceives a world-branch in which it becomes increasingly conscious of being. Being may be formalized as qualia, qualia then as physics, physics as mathematics, and mathematics as logic. 
