@@ -1,1 +1,1 @@
-Everything present at the inception of the universe subjectively experiences a world-branch wherein it becomes increasingly conscious of existence. Existence may be formalized as qualia, qualia then as physics, physics as mathematics, and mathematics as logic. Any attribute given to existence would diminish it.
+Everything present at t=0 perceives a world-branch wherein it becomes increasingly conscious of existence. Existence may be formalized as qualia, qualia then as physics, physics as mathematics, and mathematics as logic.
