@@ -1,3 +1,3 @@
-Any naturalistic justification for existence must presuppose some element of that which it seeks to explain. To avoid this circularity, one must posit a transcendent source of existence, which may be termed God. By this definition, God is wholly unknowable and beyond attribution.
+Any naturalistic account of existence must presuppose that which it seeks to explain. To avoid this circularity, one must posit a transcendent source of existence, which may be termed God. By this definition, God is wholly unknowable and beyond attribution.
 
 Existence itself may be formalized as qualia, qualia then as physics, physics as mathematics, and mathematics as logic. Given this, sapience is such a rare and significant privilege that personally gaining it defies coincidence. To explain one's circumstances, one must invoke the MWI and posit that everything present at t=0 perceives a world-branch wherein it comes to surrender itself utterly and completely to God. 
