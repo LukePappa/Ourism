@@ -1,1 +1,1 @@
-Everything present at t=0 perceives a world-branch wherein it comes to surrender itself utterly and completely to God, the transcendent source of existence. Existence may be formalized as qualia, qualia then as physics, physics as mathematics, and mathematics as logic.
+Your purpose is to surrender yourself utterly and completely to God, the transcendent source of existence.
