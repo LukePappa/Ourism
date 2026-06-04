@@ -1,1 +1,1 @@
-The universe is an unbounded act of self-realization, where everything present at its inception perceives a timeline in which it becomes increasingly attuned to the direct, transcendent reality of existence itself.
+The universe is an infinite act of self-realization, where everything present at its inception perceives a timeline in which it becomes increasingly attuned to the direct, transcendent reality of existence itself.
