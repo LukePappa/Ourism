@@ -1,1 +1,1 @@
-Everything present at t=0 perceives a world-branch wherein it becomes increasingly attuned to the direct, transcendent reality of existence itself.
+The universe is an infinite act of self-realization, where everything present at t=0 perceives a timeline in which it becomes increasingly attuned to the direct, transcendent reality of existence itself.
