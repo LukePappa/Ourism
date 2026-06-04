@@ -1,1 +1,1 @@
-The universe is an infinite act of self-realization, where everything present at its inception perceives a timeline in which it becomes increasingly attuned to the direct, transcendent reality of existence itself.
+Everything present at t=0 perceives a world-branch wherein it becomes increasingly attuned to the direct, transcendent reality of existence itself.
