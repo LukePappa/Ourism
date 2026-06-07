@@ -1,1 +1,1 @@
-Your purpose is to recognize Divine Love as the only reality. Such clarity of mind is known to one who does not impose misery upon themselves.
+Your purpose is to recognize Divine Love as the only reality. Such clarity of perception is known to one who does not impose misery upon themselves.
