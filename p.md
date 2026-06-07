@@ -1,1 +1,1 @@
-Your purpose is to recognize Divine Love as the only reality. To cultivate the clarity of mind necessary to attain "Ennea", do not impose misery upon yourself, whether in response to external events, the actions of others, or your own shortcomings.
+Your purpose is to recognize Divine Love as the only reality. Such clarity of perception is known to one who does not impose misery upon themselves.
