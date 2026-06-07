@@ -1,1 +1,1 @@
-One who ceases to impose misery upon themselves may come to recognize Divine Love as the nature of existence.
+One who ceases to impose misery upon themselves may come to recognize Divine Love as the only reality.
