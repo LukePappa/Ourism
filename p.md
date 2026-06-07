@@ -1,1 +1,1 @@
-One may come to recognize Divine Love as the nature of existence when they stop imposing misery upon themselves.
+One who does not impose misery upon themselves may come to recognize Divine Love as the only reality.
