@@ -1,1 +1,1 @@
-Your purpose is to recognize Divine Love as the only reality. Such clarity of perception is known to the untroubled heart, and the untroubled heart is one that does not impose misery upon itself.
+Your purpose is to recognize Divine Love as the only reality. To cultivate the clarity of mind necessary to attain "Ennea", do not impose misery upon yourself, whether in response to external events, the actions of others, or your own shortcomings.
