@@ -1,1 +1,1 @@
-Everything present at t=0 subjectively experiences a timeline wherein it comes to recognize Divine Love as the only reality. Such clarity of perception is known to those who do not impose misery upon themselves, whether in response to external events, the actions of others, or their own shortcomings.
+Everything present at t=0 subjectively experiences a timeline wherein it comes to recognize Divine Love as the only reality. Such clarity of perception is known to the untroubled heart, and the untroubled heart is one that does not impose misery upon itself.
