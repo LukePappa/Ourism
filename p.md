@@ -1,1 +1,1 @@
-Everything present at t=0 subjectively experiences a timeline wherein it comes to recognize Divine Love as the only reality. Such clarity of perception is known to those who do not impose misery upon themselves.
+Everything present at t=0 perceives a world-branch wherein it surrenders itself utterly and completely to God, the transcendent source of existence. Existence itself may be formalized as qualia, qualia then as physics, physics as mathematics, and mathematics as logic.
