@@ -1,1 +1,1 @@
-One who ceases to impose misery upon themselves may come to recognize Divine Love as the only reality.
+Everything present at the inception of the universe subjectively experiences a world-branch wherein it comes to recognize Divine Love as the only reality. Such clarity of perception is known to those who cease to impose misery upon themselves.
