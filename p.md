@@ -1,1 +1,1 @@
-Everything present at t=0 perceives a world-branch wherein it comes to recognize Divine Love as the only reality. Such clarity of perception is known to the untroubled heart, and the untroubled heart is one that does not impose misery upon itself.
+Everything present at t=0 subjectively experiences a world-branch wherein it comes to recognize Divine Love as the only reality. Such clarity of perception is known to the untroubled heart, and the untroubled heart is one that does not impose misery upon itself.
