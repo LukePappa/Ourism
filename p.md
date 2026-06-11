@@ -1,1 +1,1 @@
-Everything present at t=0 perceives a world-branch wherein it becomes increasingly attuned to existence itself.
+Everything present at t=0 perceives a world-branch wherein it becomes increasingly attuned to existence. Existence may be formalized as qualia, qualia then as physics, physics as mathematics, and mathematics as logic.
