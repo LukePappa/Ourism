@@ -1,1 +1,1 @@
-Everything present at t=0 perceives a world-branch wherein it becomes increasingly attuned to existence itself.
+The universe is an unbounded act of self-realization, where everything present at its inception perceives a world-branch wherein it becomes increasingly attuned to existence itself.
