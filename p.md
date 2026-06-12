@@ -1,1 +1,1 @@
-One's purpose is to achieve ever-finer attunement to pure existence.
+Everything present at the inception of the universe subjectively experiences a timeline wherein it comes to recognize Divine Love as the only reality. Such clarity of perception is known to the untroubled heart, and the untroubled heart is one that does not impose misery upon itself.
