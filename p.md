@@ -1,1 +1,1 @@
-Everything present at t=0 perceives a world-branch wherein it becomes increasingly attuned to pure existence.
+Everything present at the inception of the universe perceives a timeline wherein it becomes increasingly attuned to pure existence.
