@@ -1,1 +1,1 @@
-Everything that exists subjectively experiences a timeline wherein it comes to recognize Divine Love as the only reality. To cultivate the clarity of mind necessary to fulfill your purpose, stop imposing misery upon yourself.
+Everything that exists subjectively experiences a timeline wherein it comes to recognize Divine Love as the only reality. Such clarity of perception belongs to the untroubled heart, and the untroubled heart is one that does not impose misery upon itself.
