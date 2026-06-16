@@ -1,1 +1,1 @@
-Everything that exists subjectively experiences a timeline wherein it comes to recognize Divine Love as the only reality. Such clarity of perception belongs to the pure of heart, and the pure of heart are those who do not impose misery upon themselves.
+Everything that exists subjectively experiences a timeline wherein it comes to recognize Divine Love as the only reality. Such clarity of perception belongs to the pure of heart.
