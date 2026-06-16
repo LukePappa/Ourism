@@ -1,1 +1,1 @@
-Everything that exists subjectively experiences a timeline wherein it comes to recognize Divine Love as the only reality. Such clarity of perception belongs to a pure heart.
+Everything that exists subjectively experiences a timeline wherein it comes to recognize Divine Love as the only reality. Such clarity of perception belongs to a heart purified by God.
