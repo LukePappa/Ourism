@@ -1,1 +1,1 @@
-Everything that exists subjectively experiences a timeline wherein it comes to recognize Divine Love as the only reality. Such clarity of perception belongs to the untroubled heart, and the untroubled heart is one that first recognizes all misery as self-inflicted.
+Everything that exists subjectively experiences a timeline wherein it comes to recognize Divine Love as the only reality. Such clarity of perception belongs to the untroubled heart, and the untroubled heart is one that does not impose misery upon itself.
