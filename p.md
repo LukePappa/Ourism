@@ -1,1 +1,1 @@
-Everything present at the inception of the universe subjectively experiences ever-finer attunement to existence itself.
+Everything subjectively experiences ever-finer attunement to existence itself.
