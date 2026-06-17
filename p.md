@@ -1,1 +1,1 @@
-Existence subjectively experiences ever-finer attunement to Divine Love through the cessation of self-imposed misery.
+Your purpose is to recognize Divine Love as the only reality. To live in accordance with your purpose, cease inflicting misery upon yourself in response to events, others, and your own shortcomings.
