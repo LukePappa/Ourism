@@ -1,1 +1,1 @@
-Existence subjectively experiences ever-finer attunement to itself.
+Existence subjectively experiences ever-finer attunement to Divine Love through the cessation of self-imposed misery.
