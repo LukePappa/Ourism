@@ -1,1 +1,1 @@
-Existence may be formalized as qualia, qualia as physics, physics as mathematics, and mathematics as logic. As an act of unbounded self-realization, existence subjectively experiences ever-finer attunement to itself. 
+Existence subjectively experiences ever-finer attunement to itself, which it may formalize as qualia, qualia as physics, physics as mathematics, and mathematics as logic. 
