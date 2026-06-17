@@ -1,1 +1,1 @@
-All perceive a world wherein they come to apprehend Divine Love as the only reality. God is known to the untroubled heart, and the untroubled heart is one that does not impose misery upon itself.
+All perceive a world wherein they come to know Divine Love as the only reality. To fulfill your purpose, stop imposing misery upon yourself.
