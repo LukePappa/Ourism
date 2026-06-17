@@ -1,1 +1,1 @@
-Everything subjectively experiences ever-finer attunement to existence itself.
+Existence subjectively experiences ever-finer attunement to itself.
