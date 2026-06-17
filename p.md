@@ -1,1 +1,1 @@
-Everything subjectively experiences ever-finer attunement to existence, which may be formalized as qualia, qualia then as physics, physics as mathematics, and mathematics as logic.
+Everything subjectively experiences ever-finer attunement to existence itself.
