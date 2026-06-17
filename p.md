@@ -1,1 +1,1 @@
-Existence subjectively experiences ever-finer attunement to itself, which it may formalize as qualia, qualia as physics, physics as mathematics, and mathematics as logic. 
+One direct, unbounded, complete, and undivided reality may be abstracted as qualia, qualia as physics, physics as mathematics, and mathematics as logic. In an infinite and eternal act of self-realization, it subjectively experiences ever-finer attunement to itself.
