@@ -1,1 +1,1 @@
-Everything subjectively experiences a world in which it comes to recognize Divine Love as the only reality. Such clarity of perception belongs to the untroubled heart, and the untroubled heart is one that does not impose misery upon itself.
+All perceive a world wherein they apprehend Divine Love as the only reality. Knowledge of God belongs to the untroubled heart, and the untroubled heart is one that does not impose misery upon itself.
