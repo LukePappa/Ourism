@@ -1,1 +1,1 @@
-Your purpose is to recognize Divine Love as the only reality. To live in accordance with your purpose, cease inflicting misery upon yourself in response to events, others, and your own shortcomings.
+Existence subjectively experiences ever-finer attunement to itself.
