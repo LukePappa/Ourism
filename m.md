@@ -1,0 +1,1 @@
+Existence may be formalized as qualia, qualia as physics, physics as mathematics, and mathematics as logic. Everything present at the inception of the universe is subject to a world-branch wherein it attains ever-finer attunement to existence itself.
