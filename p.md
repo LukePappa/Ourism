@@ -1,1 +1,1 @@
-All perceive a world wherein they come to recognize Divine Love as the only reality. To cultivate the clarity of mind necessary to fulfill your purpose, stop imposing misery upon yourself.
+Everything present at the inception of the universe subjectively experiences ever-finer attunement to pure existence.
