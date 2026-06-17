@@ -1,1 +1,1 @@
-One direct, complete, unbounded, and undivided reality may be abstracted as qualia, qualia as physics, physics as mathematics, and mathematics as logic. In an infinite and eternal act of self-realization, it subjectively experiences ever-finer attunement to itself.
+One direct, preconceptual reality may be abstracted as qualia, qualia as physics, physics as mathematics, and mathematics as logic. In an infinite and eternal act of self-realization, it subjectively experiences ever-finer attunement to itself.
