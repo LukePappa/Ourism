@@ -1,1 +1,1 @@
-One direct, undivided, complete, and unbounded reality may be abstracted as qualia, qualia as physics, physics as mathematics, and mathematics as logic. In an infinite and eternal act of self-realization, it subjectively experiences ever-finer attunement to itself.
+Everything present at the inception of the universe subjectively experiences a timeline wherein it comes to recognize Divine Love as the only reality. Such clarity of perception belongs to the untroubled heart, and the untroubled heart is one that does not impose misery upon itself.
