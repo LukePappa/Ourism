@@ -1,1 +1,1 @@
-All perceive a world wherein they come to know Divine Love as the only reality. To fulfill your purpose, stop imposing misery upon yourself.
+Everything present at the inception of the universe perceives a world wherein it comes to recognize Divine Love as the only reality. Such clarity of perception belongs to the untroubled heart, and the untroubled heart is one that does not impose misery upon itself.
