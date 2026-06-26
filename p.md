@@ -1,2 +1,2 @@
 What exists is the direct and immediate reality of Divine Love. Our perception of this reality is distorted by the misery that we impose upon ourselves in response to external events, the actions of others, and our own shortcomings. 
-The fullness of God's plan is for everything to perceive a world wherein it grows attunement to Him through a gradual ceasing of self-imposed misery.
+The fullness of providence is for everything to perceive a world wherein it grows in attunement to God through a gradual ceasing of self-imposed misery.
