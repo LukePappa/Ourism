@@ -1,1 +1,2 @@
-What exists is the direct and immediate reality of Divine Love. Our perception of this reality is distorted by the misery that we impose upon ourselves in response to external events, the actions of others, and our own shortcomings. Everyone perceives a world wherein they attune to God by recognizing the mistake of self-imposed misery and ceasing to participate in it. 
+What exists is the direct and immediate reality of Divine Love. Our perception of this reality is distorted by the misery that we impose upon ourselves in response to external events, the actions of others, and our own shortcomings. 
+Providence is such that everyone perceives a world wherein they attune to God by recognizing the mistake of self-imposed misery and ceasing to participate in it. 
