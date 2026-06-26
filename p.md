@@ -1,3 +1,1 @@
-What exists is the direct and immediate reality of Divine Love. Our perception of this reality is distorted by the misery that we impose upon ourselves in response to external events, the actions of others, and our own shortcomings. Our purpose is to attune ourselves to God by recognizing the mistake of self-imposed misery and ceasing to participate in it.
-
-The fullness of God's plan is complete self-realization, wherein everything experiences a world in which it attunes to Him by recognizing the mistake of self-imposed misery and ceasing to participate in it.
+What exists is the direct and immediate reality of Divine Love. Our perception of this reality is distorted by the misery that we impose upon ourselves in response to external events, the actions of others, and our own shortcomings. Everyone perceives a world wherein they attune to God by recognizing the mistake of self-imposed misery and ceasing to participate in it. 
