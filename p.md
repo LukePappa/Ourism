@@ -1,1 +1,1 @@
-Our purpose is to love each other selflessly.
+Our purpose is to attune ourselves to God by selflessly loving one another.
