@@ -1,1 +1,1 @@
-Our purpose is to know God through selfless love of one other.
+Our purpose is to love each other selflessly.
