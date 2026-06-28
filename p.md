@@ -1,1 +1,1 @@
-What exists is the direct and immediate reality of Divine Love. Our purpose is to attune to it by selflessly loving one other.
+Our purpose is to attune to God by selflessly loving one other.
