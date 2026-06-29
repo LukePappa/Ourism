@@ -1,1 +1,1 @@
-What exists is the direct and immediate reality of Divine Love. Our perception of this reality is distorted by the misery that arises within us in response to external events, the actions of others, and our own shortcomings. Our purpose is to attune ourselves to God by relinquishing this misery when it arises.
+What exists is the direct and immediate reality of Divine Love. Our perception of this reality is distorted by the misery that arises within us because of egotistical desire. Our purpose is to attune ourselves to God by loving one another selflessly.
