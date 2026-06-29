@@ -1,1 +1,0 @@
-The universe is an infinite and eternal act of self-realization, where everything present at its inception perceives a world-branch in which it becomes increasingly attuned to existence itself.
