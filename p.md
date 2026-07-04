@@ -1,1 +1,1 @@
-What exists is the direct and immediate reality of Divine Love. All else is an illusion created by egocentric desire, which is itself a distortion of this reality. Our purpose is to attune to God by learning to love one another selflessly.
+What exists is the direct and immediate reality of Divine Love. All else is an illusion created by egocentric desire, which is itself a distortion of this reality. Our purpose is to attune ourselves to God by learning to love one another selflessly.
