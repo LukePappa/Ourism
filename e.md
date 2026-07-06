@@ -1,1 +1,0 @@
-What exists is Divine Love. It may be formalized as qualia, qualia as physics, physics as mathematics, and mathematics as logic. Speaking in those terms, the universe is an unbounded act of self-realization, where everything present at its inception subjectively experiences a world-branch in which it becomes increasingly conscious of ultimate reality.
