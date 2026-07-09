@@ -1,1 +1,1 @@
-Divine Love is the only reality. It has become distorted into egocentric desire, creating the false perception of separation and multiplicity. Our purpose is to attune to God by learning to love one another selflessly.
+Divine Love is the only reality. We distort this reality into egocentric desire, creating the false perception of separation and multiplicity. Our purpose is to attune ourselves to God by learning to love one another selflessly.
