@@ -1,1 +1,1 @@
-Divine Love is the only reality. It has become distorted into egocentric desire, creating the false perception of separation and multiplicity. Our purpose is to attune ourselves to God by learning to love one another selflessly.
+Divine Love is the only reality. It has become distorted into egocentric desire, creating the false perception of separation and multiplicity. Providence is such that all perceive a world wherein they reunite with God by learning to love others selflessly.
