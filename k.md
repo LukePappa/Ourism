@@ -1,1 +1,1 @@
-What exists is the direct reality of Divine Love. It has become distorted into egocentric desire, creating the false perception of separation and multiplicity. Providence is such that each of us perceives a world wherein we attune to God by learning to love others selflessly.
+What exists is the direct reality of Divine Love. It has become distorted into egocentric desire, creating the false perception of separation and multiplicity. Providence is such that each of us perceives a world wherein we re-attune to God by learning to love others selflessly.
