@@ -1,1 +1,0 @@
-What exists is the direct and immediate reality of Divine Love. It has become distorted into egocentric desire, creating the false perception of separation and multiplicity. Providence is such that everything perceives a world wherein it attunes to God by learning to love others selflessly.
