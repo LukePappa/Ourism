@@ -1,1 +1,1 @@
-What exists is the eternal, undivided, unchanging, complete, absolutely simple, and infinite reality of Divine Love.
+What exists is eternal, undivided, unchanging, complete, abosolutely simple, infinite love.
