@@ -1,1 +1,1 @@
-What exists is the direct and immediate reality of Divine Love. It has become distorted into egocentric desire, creating the false perception of separation and multiplicity. Our purpose is to reattune ourselves to God by learning to love one another selflessly.
+What exists is the direct and immediate reality of Divine Love. It has become distorted into egocentric desire, creating the false perception of temporality, multiplicity, change, imperfection, and finitude. Our purpose is to reattune ourselves to God by learning to love one another selflessly.
