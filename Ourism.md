@@ -1,1 +1,1 @@
-Ourism holds that theories, doctrines, and philosophies fall short of true knowledge, which is itself unspeakable. It teaches that enlightenment is attained by obeying the single meditative instruction: "Be."
+Ourism holds that theories, doctrines, and philosophies fall short of true knowledge, which is itself unspeakable. It teaches that enlightenment may be attained by obeying the single meditative instruction: "Be."
